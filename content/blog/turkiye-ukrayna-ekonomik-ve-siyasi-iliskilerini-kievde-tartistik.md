@@ -6,7 +6,7 @@ tags: ["Ekonomi", "Friedrich Ebert Stiftung", "Maryna Vorotnuk", "Politika", "Se
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/04/DSC_6716.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/DSC_6716.jpg)
 
 
 
@@ -71,21 +71,21 @@ Güçlü bir Ukrayna güçlü ve dost bir komşu aynı zamanda güçlü de bir T
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/04/DSC_6898.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/DSC_6898.jpg)
 
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/04/DSC_7367.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/DSC_7367.jpg)
 
 
 
 
-  ![](http://burakpehlivan.org/wp-content/uploads/2017/04/DSC_7243.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/04/DSC_7117.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/04/DSC_6903.jpg)
+  ![](https://burakpehlivan.org/wp-content/uploads/2017/04/DSC_7243.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/DSC_7117.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/DSC_6903.jpg)
 
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/04/DSC_7620.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/DSC_7620.jpg)
 
 

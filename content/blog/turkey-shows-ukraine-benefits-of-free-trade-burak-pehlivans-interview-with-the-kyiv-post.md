@@ -8,7 +8,7 @@ type: post
 
  
 
-[![original_new-top](http://burakpehlivan.org/wp-content/uploads/2016/03/original_new-top.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/original_new-top.jpg)
+[![original_new-top](https://burakpehlivan.org/wp-content/uploads/2016/03/original_new-top.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/original_new-top.jpg)
 
 Turkey and Ukraine have a lot in common. Both straddle the fault line between East and West. Both are trade transit routes and both have similar geopolitical outlooks.
 
@@ -22,7 +22,7 @@ Despite worries at the time, many observers now consider the 1995 Turkey-Europea
 
  
 
-[![Burak Pehlivan Vice  President of the International Turkish-Ukraine Business Association ](http://burakpehlivan.org/wp-content/uploads/2016/03/Burak-foto.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/Burak-foto.jpg)
+[![Burak Pehlivan Vice  President of the International Turkish-Ukraine Business Association ](https://burakpehlivan.org/wp-content/uploads/2016/03/Burak-foto.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/Burak-foto.jpg)
 
 Burak Pehlivan Vice  President of the International Turkish-Ukraine Business Association
 

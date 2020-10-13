@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Kutlama Yemeği", "Nikolay Tişenko", "Sergey Rebrov",
 type: post
 ---
 
-[![Rebrov](http://burakpehlivan.org/wp-content/uploads/2014/04/Rebrov.jpeg)](http://burakpehlivan.org/wp-content/uploads/2014/04/Rebrov.jpeg)
+[![Rebrov](https://burakpehlivan.org/wp-content/uploads/2014/04/Rebrov.jpeg)](https://burakpehlivan.org/wp-content/uploads/2014/04/Rebrov.jpeg)
 **Ukrayna Beşiktaşlılar Derneği**, haftaiçi Dinamo Kiev’in teknik direktörlüğü görevine getirilen **Sergey Rebrov**’un onuruna bir kutlama yemeği verdi. Kiev Tike restoranda gerçekleştirilen yemeğe, dernek üyelerinin yanı sıra, derneğin fahri üyelerinden Ukrayna’nın en ünlü restoran işletmecisi ve şefi olan **Nikolay Tişenko** da katıldı.
 
 Dinamo Kiev teknik direktörü Oleg Blohin’in görevine Dinamo Kiev’in ezeli rakibi, Mircea Lucescu’nun takımı Şahtar Donetsk karşısında kendi evinde aldığı mağlubiyet sonrasında son verilmesi üzerine takımın başına eski Fenerbahçeli futbolcu **Sergey Rebrov** getirilmişti. Rebrov, yemekte Türkiye’yi hiçbir zaman unutmadığını belirterek, “Türk taraftarları ve Türkiye’yi özlüyorum, ancak gerek takımın kampları gerekse turistik seyahatler ile Türkiye’ye sık sık gitme imkanım oluyor” dedi. **Sergey Rebrov** sözlerine, takım olarak kolay bir dönem geçirmiyoruz ancak takımda çok iyi oyuncularımız var çok çalışarak daha başarılı hale gelebiliriz, neticede Dinamo Kiev çok büyük ve güçlü bir camiadır” diyerek devam etti. Dinamo Kiev’in çiçeği burnunda teknik direktörü, bir gün Türkiye’de teknik adamlık yapmak istiyor musunuz sorusuna ise cevap vermeyerek yalnızca gülümsedi.

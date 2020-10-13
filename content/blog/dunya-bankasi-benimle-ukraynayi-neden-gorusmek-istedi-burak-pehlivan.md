@@ -6,7 +6,7 @@ tags: ["Attila Köksal", "Burak Pehlivan", "CFA Enstitü", "CFA Ukrayna", "Düny
 type: post
 ---
 
-![dunya-bankasi](http://burakpehlivan.org/wp-content/uploads/2016/10/dunya-bankasi.jpg)
+![dunya-bankasi](https://burakpehlivan.org/wp-content/uploads/2016/10/dunya-bankasi.jpg)
 
 
 
@@ -36,7 +36,7 @@ Kurum, son iki-iki buçuk yıllık süreçte Ukrayna’daki enerji sektörünün
 
 
 
-![world-bank-1](http://burakpehlivan.org/wp-content/uploads/2016/10/World-Bank-1.jpg)
+![world-bank-1](https://burakpehlivan.org/wp-content/uploads/2016/10/World-Bank-1.jpg)
 
 
 
@@ -56,7 +56,7 @@ Heyette en dikkat çekici isimlerden Harvard ve MIT’den diplomalı uluslararas
 
 
 
-![accrareport_the-world-bank-praises-ghanas-economic-growth-over-the-past-10-years](http://burakpehlivan.org/wp-content/uploads/2016/10/accrareport_the-world-bank-praises-ghanas-economic-growth-over-the-past-10-years.jpg)
+![accrareport_the-world-bank-praises-ghanas-economic-growth-over-the-past-10-years](https://burakpehlivan.org/wp-content/uploads/2016/10/accrareport_the-world-bank-praises-ghanas-economic-growth-over-the-past-10-years.jpg)
 
 
 

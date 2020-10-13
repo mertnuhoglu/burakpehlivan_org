@@ -6,7 +6,7 @@ tags: ["Ali Aliyev", "Azerbaycan", "Eynulla Medetli", "Kiev’de", "TUİD (Türk
 type: post
 ---
 
-[![DSC_0436](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0436.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0436.jpg)
+[![DSC_0436](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0436.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0436.jpg)
 
 Türk Ukrayna İşadamları Derneği (TUİD) ve Azerbaycan Ukrayna İşadamları ve Sanayiciler Derneği (ATU) ortak organizasyonuyla, Ukrayna’da iş yapan Türkiye ve Azerbaycan kökenli Türk işadamları, Kiev’de, T.C Kiev Büyükelçisi Yönet Can Tezel ile Azerbaycan Kiev Büyükelçisi Eynulla Medetli’nin onurlandırdığı bir etkinlikte bir araya geldiler. İki ülke işadamlarınnın yanı sıra, Avrupa İmar ve Kalkınma Bankası Ukrayna Genel Müdürü Şevki Acuner, Ukrayna Sanayi ve Ticaret Odası temsilcileri, ülkedeki işadamı dernekleri yöneticileri, iki ülkenin devlet kurumlarının Ukrayna’daki yetkilileri, Azerbaycan Diaspora liderleri, Azerbaycanlı akademisyenler ve sanatçılar organizasyona yoğun katılım gösterdiler.
 
@@ -40,16 +40,16 @@ Son olarak söz alan TUİD yönetim kurulu başkan vekili Burak Pehlivan ise, bu
 
 Türk Ukrayna İşadamları Derneği ve Azerbaycan Ukrayna İşadamları ve Sanayiciler Birliği’nin ortak organizasyonu, konuşmalar sonrasında düzenlenen tanışma kokteyli ile sona erdi.
 
-[![DSC_0350](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0350.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0350.jpg)
+[![DSC_0350](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0350.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0350.jpg)
 
-[![DSC_0424](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0424.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0424.jpg)
+[![DSC_0424](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0424.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0424.jpg)
 
-[![DSC_0432](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0432.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0432.jpg)
+[![DSC_0432](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0432.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0432.jpg)
 
-[![DSC_0435](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0435.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0435.jpg)
+[![DSC_0435](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0435.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0435.jpg)
 
-[![DSC_0494](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0494.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0494.jpg)
+[![DSC_0494](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0494.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0494.jpg)
 
-[![DSC_0563](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0563.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0563.jpg)
+[![DSC_0563](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0563.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0563.jpg)
 
-[![DSC_0567](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0567.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0567.jpg)
+[![DSC_0567](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0567.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/03/DSC_0567.jpg)

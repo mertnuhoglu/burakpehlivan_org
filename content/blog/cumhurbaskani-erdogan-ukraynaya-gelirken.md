@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "dış ticaret", "Ekonomi", "Politika", "recep tayyip er
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2020/02/WhatsApp-Image-2020-02-02-at-13.22.05.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2020/02/WhatsApp-Image-2020-02-02-at-13.22.05.jpeg)
 
 Türkiye Cumhuriyeti Cumhurbaşkanı Recep Tayyip Erdoğan günübirlik resmi ziyaret için Ukrayna’ya gelirken, kısa gezinin, uzun ve kapsamlı bir gündemi var. Önce, ev sahibi Ukrayna Cumhurbaşkanı Volodomir Zelenksiy ile birlikte iki stratejik partner ülke arasındaki Yüksek Düzeyli Stratejik İşbirliği Konseyi toplantısına başkanlık yapacaklar, sonrasında ise on yıl sonra ilk kez iki ülke liderlerinin birlikte katılımıyla Kiev’de düzenlenecek Türkiye Ukrayna İş Forumunda iş insanlarına beraber hitap edecekler. 
 
@@ -28,7 +28,7 @@ Ekonomi cephesinde Ukrayna’da hükümet yüksek büyüme hedefleri koydu. Bu h
 
 Turizm, ziyarette gündeme gelebilecek bir başka önemli alan. 2011’den beri iki ülke arasında vizesiz seyahat mümkünken,  2017’den sonra artık kimlik kartıyla Ukrayna ve Türkiye vatandaşları birbirlerini ziyaret edebiliyorlar. İlk kez Kiev’e geldiğim yıl olan 2004’ü hatırlıyorum Türk Havayolları’nın, Kiev’e günlük seferi bile yoktu. Bugün Türk ve Ukrayna havayolu şirketleri haftada 200’ün üzerinde karşılıklı sefer düzenlerken, Türk Havayolları, Ukrayna’nın bayrak taşıyıcı havayolu şirketi MAU’dan sonra Ukrayna hava sahasını en çok kullanan 2. havayolu şirketi oldu. Dünya’da en çok turist ağırlayan 6. ülke olan Türkiye’ye, 2019’da gelen Ukraynalı turist sayısı 1,5 milyonu geçerken, 300 bine yakın Türk vatandaşı Ukrayna’yı ziyaret etti. Bunlar harika rakamlar bununla beraber turizmi öncelikli sektörlerden biri olarak belirleyen Ukrayna’nın kuşkusuz, Türkiye’nin bu alandaki birikimine, know-how’una ve tabii ki Türk firmalarının yatırımlarına ihtiyacı var. Bugün dünyanın en büyük 5 yıldızlı otel bölgesi olan Antalya’nın bu hale gelmesi 1985’te başlayan devletin bu bölgedeki turizm yatırımlarına verdiği teşviklerle oldu. Ukrayna turizm hamlesi başlatırken, Türk otel yatırımcılarının, işletmecilerinin önümüzdeki dönemde ülkede yatırımlarına tanıklık edeceğiz ama turizm sektöründeki yerli olsun yabancı olsun yatırımların devlet tarafından teşvik edilmesi, uygun yatırım ortamın sağlanması önemli. 
 
-![](http://burakpehlivan.org/wp-content/uploads/2020/02/WhatsApp-Image-2020-02-02-at-13.19.30.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2020/02/WhatsApp-Image-2020-02-02-at-13.19.30.jpeg)
 
 Son 5 yılda özelleştirmede Ukrayna’da ciddi bir ilerleme kaydedilemezken, bu yıl 500’e yakın şirketin özelleştirilmesi öngörülüyor. Ukrayna’da sayıları 3.600’ı bulan devlet işletmelerinden en az 1.500’ü ise önümüzdeki birkaç yıl içerisinde özelleştirilmiş olacak, bu ise yalnıza bölgede değil, dünyada son on yıllardaki en büyük özelleştirme dalgalarından biri. Türkiye son 20 yılda 60 milyar $ özelleştirme ve imtiyaz geliri elde etti. Türk firmaları bu alanda deneyimlendi. Liman, havalimanı işletmesinden, özelleştirme ihalelerine katılıma Türk firmaları Ukrayna’da özelleştirmeye ilgi gösterecektir. Nitekim iş forumunda Ukrayna Özelleştirme İdaresi Başkanı'nın da bir konuşması olacak. 
 

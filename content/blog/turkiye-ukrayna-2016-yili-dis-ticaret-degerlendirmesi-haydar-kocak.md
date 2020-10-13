@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "dış ticaret", "Ekonomi", "Haydar Koçak", "ihracat", 
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/02/95037-g-antep-ihracattaki-ivmeyi-nisan-da-da-surdurdu.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/02/95037-g-antep-ihracattaki-ivmeyi-nisan-da-da-surdurdu.jpg)
 
 Türkiye ve Ukrayna arasında 2016 yılında gerçekleşen dış ticareti, Türkiye Cumhuriyeti Kiev Ticaret müşaviri Haydar Koçak, son değerlendirme raporunda Türkiye istatistik kurumunun verilerinden yararlanarak ayrıntılı bir biçimde analiz etmiş. Türkiye'nin, Ukrayna'ya ihracatında 2016 yılında bir önceki yıla göre %12'lik artışın yaşanması oldukça sevindirici. Üstelik bu artış Ukrayna ve AB arasındaki Serbest Ticaret Antlaşması'nın 1 Ocak 2016 yılında yürürlüğe girmesi ve böylece birçok ürün grubunda AB'li üreticilerin Ukrayna'da gümrük vergisi ödememesi, Türk üreticilerin ise gümrük vergisi ödemeye devam ederek rekabet avantajını kaybetmesine rağmen yaşandı. Ukrayna'nın Türkiye'ye ihracatında ise %26'lık bir kayıp söz konusu. Konuk yazar olarak Koçak'ın bu çalışmasına bloğumda yer veriyorum. Güncel Ukrayna raporunu da merakla bekliyoruz. Ukrayna hakkında Türkçe kaynakların sayısının artması, kuşkusuz işadamlarımızın bu ülkeyi daha iyi tanımasına ve dolaylı olarak iki ticaret ve yatırımların artmasına da zemin hazırlayacaktır.
 
@@ -5333,7 +5333,7 @@ AYAKKABILAR, GETRLER, TOZLUKLAR VE BENZERİ EŞYA, BUNLARIN AKSAMI
 
 **Haydar KOÇAK**
 
-![dscn01671](http://burakpehlivan.org/wp-content/uploads/2017/01/DSCN01671.jpg)
+![dscn01671](https://burakpehlivan.org/wp-content/uploads/2017/01/DSCN01671.jpg)
 
 **Türkiye Cumhuriyeti Kiev Ticaret Müşaviri**
 

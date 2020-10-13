@@ -7,7 +7,7 @@ type: post
 ---
 
 [
-](http://burakpehlivan.org/1187/daibe-bir-adim-daha-tuid-heyeti-macaristanda/dscn0828/) [![DSCN0826](http://burakpehlivan.org/wp-content/uploads/2013/01/DSCN0826.jpg)](http://burakpehlivan.org/1187/daibe-bir-adim-daha-tuid-heyeti-macaristanda/dscn0826/)
+](https://burakpehlivan.org/1187/daibe-bir-adim-daha-tuid-heyeti-macaristanda/dscn0828/) [![DSCN0826](https://burakpehlivan.org/wp-content/uploads/2013/01/DSCN0826.jpg)](https://burakpehlivan.org/1187/daibe-bir-adim-daha-tuid-heyeti-macaristanda/dscn0826/)
 
 Doğu Avrupa Türk İşadamları Dernekleri Birliği(DAİB) projesi kapsamında çalışmalarını sürdüren Türk Ukrayna İşadamları Derneği (TUİD) Heyeti’nin son durağı Macaristan, Budapeşte oldu. TUİD Başkanvekili Burak Pehlivan, yönetim kurulu üyesi Aziz Şimşek ve Genel Koordinatör Alaaddin Güven Memiş’ten oluşan heyet Türkiye Cumhuriyeti Budapeşte Büyükelçisi Hasan Kemal Gür tarafından kabul edilirken, görüşmede Budapeşte ticaret müşavirleri Evrim Demirci Soranlar ve Fatma Seda Sevgi de hazır bulundular.
 
@@ -25,5 +25,5 @@ Son olarak söz alan TUİD Başkanvekili Burak Pehlivan, Macaristan’da kendile
 
 www.tuid.org.ua
 
-[![DSCN0828](http://burakpehlivan.org/wp-content/uploads/2013/01/DSCN0828.jpg)](http://burakpehlivan.org/1187/daibe-bir-adim-daha-tuid-heyeti-macaristanda/dscn0828/)
+[![DSCN0828](https://burakpehlivan.org/wp-content/uploads/2013/01/DSCN0828.jpg)](https://burakpehlivan.org/1187/daibe-bir-adim-daha-tuid-heyeti-macaristanda/dscn0828/)
 

@@ -6,7 +6,7 @@ tags: ["Gezi", "Gezi ve Restoran", "Kiev", "Kiev restoran", "kiev yemek", "Kiev'
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/Fabrizio-Righetti-2-1-1.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/Fabrizio-Righetti-2-1-1.jpg)
 
 
 
@@ -31,7 +31,7 @@ Kiev’in Büyükelçilikler Caddesi Yaroslavav Val’deki Radisson Blu Oteli’
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/Pantegruel-2.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/Pantegruel-2.jpg)
 
 
 
@@ -56,7 +56,7 @@ Sergey Gusovskiy’in bir başkanı mekanı, Meçnikova 9’daki Napule. İyi bi
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/Casa-Nori-3.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/Casa-Nori-3.jpg)
 
 
 
@@ -71,7 +71,7 @@ Padol’da geçtiğimiz yıl açılan Casa Nori (Nori’nin Evi), arkadaşım An
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/Andrea-Nori-Casa-Nori.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/Andrea-Nori-Casa-Nori.jpg)
 
 
 
@@ -91,7 +91,7 @@ Ailenin diğer üyesi **Bigoli,** Napule’nin yerleştiği cadde Meçnikova ile
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/Vino-e-Cucina-4.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/Vino-e-Cucina-4.jpg)
 
 
 
@@ -106,7 +106,7 @@ Vino e Cucina ne şehrin en iyi İtalyan şefine, ne en iyi lokasyonuna ne de en
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/Vino-e-Cucina-1.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/Vino-e-Cucina-1.jpg)
 
 
 

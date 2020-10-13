@@ -6,7 +6,7 @@ tags: ["dış ticaret hacmi", "Dünya Bankası", "Ekonomi", "kuruluyor", "ozelle
 type: post
 ---
 
-[![mezhdunarodnyiy-den-mira](http://burakpehlivan.org/wp-content/uploads/2016/09/mezhdunarodnyiy-den-mira.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/09/mezhdunarodnyiy-den-mira.jpg)
+[![mezhdunarodnyiy-den-mira](https://burakpehlivan.org/wp-content/uploads/2016/09/mezhdunarodnyiy-den-mira.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/09/mezhdunarodnyiy-den-mira.jpg)
 
 1990 yılında, Sovyetler Birliği çökerken, Dünya Bankası’nın istatistiklerine göre Ukrayna’da satın alma gücü paritesine göre kişi başına gelir, Türkiye’nin de, Polonya’nın da, Brezilya’nın da önündeydi. Ancak arada geçen 25 yılda, Ukrayna ne yazık ki bir ülkenin iyi yönetilmemesinin ekonomiye, halkın refah düzeyine, yaşam standartlarına olumsuz etkisinin görülmesi açısından iyi bir örnek oldu. Bugün, bu üç ülkenin vatandaşlarının kişi başına geliri Ukraynalılar’ın 3-4 kat üstünde. Ancak Ukrayna’nın makus talihinin özellikle, 2013 yılının kasım ayında başlayan Avrupa Meydanı olayları neticesinde oluşan yeni düzende değişmeye başladığını gözlemliyoruz.
 
@@ -14,7 +14,7 @@ type: post
 
 Son iki yılda Ukrayna ölçeğinde inanılmaz hızda yapısal reform kararları alınıp, uygulanmaya koyuldu ve bu yönelim devam ediyor. Hukukun üstünlüğünün tesis edilmesi yolunda adımlar atılırken, vergi kalemi ve kontrol organı sayısı azaltılıyor; lisansların alımı kolaylaştırılırken, lisans sayısında ciddi oranda kesintiye gidiliyor. Vergi mevzuatı basitleştiriliyor. Devlet personel kanunu da son olarak değiştirilerek reform sürecinde önemli bir adım daha atıldı. Tüm bunların sonucunda Dünya Bankası iş yapma endeksinde Ukrayna 2012 yılında 157. sıradaki yerinden, 2014 yılında 112. sıraya, 2015’de ise bir yılda 29 basamak yükselerek 83. sıraya yükselmiş durumda. Ukrayna, sıralamada hala gerilerde ama yükseliş eğilimi ve hızı gelecek için büyük bir umut veriyor.
 
-[![145163](http://burakpehlivan.org/wp-content/uploads/2016/09/145163.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/09/145163.jpg)
+[![145163](https://burakpehlivan.org/wp-content/uploads/2016/09/145163.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/09/145163.jpg)
 
 **Türkiye’de asgari ücret 450 dolarken, Ukrayna’da yalnızca 60 dolar**
 
@@ -38,7 +38,7 @@ Mevcut yasalara göre, ülkedeki 13 liman ve bunları bağlı ulaşım şirketle
 
 Demir Perde yıkılıp, Sovyetler Birliği dağılınca, Orta ve Doğu Avrupa’dan, Orta Asya Türk cumhuriyetlerine, Baltık Deniz’inden Vladivostok’a, Balkanlar’dan Kafkaslar’a çok geniş bir coğrafyada bir güç boşluğu oluştu. Baltık devletleri hariç, Rusya Federasyonu eski Sovyetler Birliğini oluşturan cumhuriyetleri Bağımsız Devletler Birliği çatısı altında toplamaya çalışırken, Avrupa Birliği ve ABD, Orta ve Doğu Avrupa’da bu boşluğu ekonomik ve siyasi olarak hızla doldurdu. Ülkemiz bu döneme, sahip olduğu yetersiz finansal kaynakları, görece düşük kalkınmışlık düzeyi, girişimci sınıfının eğitim ve deneyim eksikliğiyle hazırlıksız yakalandı. Avrupa’daki bu büyük değişimde söz sahibi olma şansı ıskalandı. Orta Asya Türk cumhuriyetleri ve Kafkaslar’da ise coğrafi yakınlık, tarihi ve kültürel bağlarla kısmen de olsa bu açıklar kapatıldı ve nispeten olumlu bir pozisyon alınabilindi. Bu arada Ukrayna, bu 25 yıllık sürecin neredeyse tamamında Batı ve Rusya arasında seçim yapmakta zorlandı, ta ki 2014 yılının şubat ayına kadar. Cumhurbaşkanı Yanukoviç’in ülkeyi terk etmesiyle sonuçlanan Avrupa Meydanı olayları sonrasında oluşan hükümetler ve meclisler, artık bir daha geri döndürülmeyecek şekilde tercihlerini Batı’dan yana yaptılar.
 
-[![1c82eef87e4824e46aa19cd1d32337bd](http://burakpehlivan.org/wp-content/uploads/2016/09/1c82eef87e4824e46aa19cd1d32337bd.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/09/1c82eef87e4824e46aa19cd1d32337bd.jpg)
+[![1c82eef87e4824e46aa19cd1d32337bd](https://burakpehlivan.org/wp-content/uploads/2016/09/1c82eef87e4824e46aa19cd1d32337bd.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/09/1c82eef87e4824e46aa19cd1d32337bd.jpg)
 
 **Türk firmaları Ukrayna’daki bu tarihi fırsatı kaçırmamalı**
 

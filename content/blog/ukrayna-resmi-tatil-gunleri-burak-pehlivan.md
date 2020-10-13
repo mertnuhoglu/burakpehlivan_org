@@ -6,7 +6,7 @@ tags: ["1 Mayıs İşçi Bayramı", "24 Ağustos Bağımsızlık Bayramı", "50 
 type: post
 ---
 
-[![29758](http://burakpehlivan.org/wp-content/uploads/2015/12/29758.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/12/29758.jpg)
+[![29758](https://burakpehlivan.org/wp-content/uploads/2015/12/29758.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/12/29758.jpg)
 
 
 
@@ -19,7 +19,7 @@ Ukrayna, resmi tatil günleri bakımından zengin bir ülke.  Dini ve resmi bay
 
 
 
-[![b1678c7578ec937ca9cc2c4475a09afc_XL](http://burakpehlivan.org/wp-content/uploads/2015/12/b1678c7578ec937ca9cc2c4475a09afc_XL.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/12/f2133e60da0adda768d0cddc9e091b0a.jpg)
+[![b1678c7578ec937ca9cc2c4475a09afc_XL](https://burakpehlivan.org/wp-content/uploads/2015/12/b1678c7578ec937ca9cc2c4475a09afc_XL.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/12/f2133e60da0adda768d0cddc9e091b0a.jpg)
 
 
 **Yeni Yıl:**Yeni yıl tatili 1 ve 2 Ocak günlerini kapsamakta ancak bu dönem, genelde 7 Ocak’ ta kutlanan Rajdestvo(Ortodoks Noeli) ile birleşmekte ve Ocak ayının ilk 10 günü, ülkede fiili tatil haline gelmektedir.
@@ -50,7 +50,7 @@ Ukrayna, resmi tatil günleri bakımından zengin bir ülke.  Dini ve resmi bay
 Ortodoksluk inancının en önemli bayramı olan **Paskalya-Diriliş Bayramı’nın** çoğu zaman mayıs ayının başına denk gelmesi sonucu, İşçi Bayramı ile de birleşerek bu  üç  bayram mayıs ayını adeta tatil ayına çevirmektedir. Nitekim 2010 yılının mayıs ayında haftasonları da dahil  edildiğinde tam 17 gün çalışılmayan gün olmuştur.
 
 
-[![66869288](http://burakpehlivan.org/wp-content/uploads/2015/12/66869288.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/12/66869288.jpg)
+[![66869288](https://burakpehlivan.org/wp-content/uploads/2015/12/66869288.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/12/66869288.jpg)
 
 
 **50 Gün Bayramı ya da Kutsal Üçlü Günü: **Ortodoks Kilisenin 12 önemli bayramının başında gelen Paskalya Bayramı’ndan sonraki 49′ncu gün, 50 Gün Bayramı ya da diğer adıyla Kutsal Üçlü Günü olarak isimilendirilir. Bayram mantık olarak her  zaman pazar gününe denk geldiği için sonraki gün olan pazartesi resmi tatildir. Bayram, ortodokslara göre Hz. İsa’nın yeniden dirilişinden 49 gün sonra, yani 50. gün Kutsal Ruh’un geldiği inanışına dayanıyor.
@@ -73,7 +73,7 @@ Ortodoksluk inancının en önemli bayramı olan **Paskalya-Diriliş Bayramı’
 
 
 
-[![187708](http://burakpehlivan.org/wp-content/uploads/2015/12/187708.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/12/187708.jpg)
+[![187708](https://burakpehlivan.org/wp-content/uploads/2015/12/187708.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/12/187708.jpg)
 
 
 **25 Aralık Katolik Noeli: **2017 yılından itibaren nüfusun %3'ünün kutladığının düşünüldüğü Katolik Noel'i resmi tatil ilan edilmiştir. Resmi tatil gün sayısının değişmemesi için 2 Mayıs günü 2018 yılından itibaren tatil takviminden çıkarılacaktır.

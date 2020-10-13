@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "Ekonomi", "ekonomi", "Ticaret", "TUİD (Türk Ukrayna �
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2984-32-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2984-32-Копировать.jpg)
 
 
 
@@ -49,9 +49,9 @@ Ukrayna değişiyor, dönüşüyor. Son üç yılda yapılan yapısal reformlar 
 **Burak PEHLİVAN**
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2987-33-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2992-34-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2987-33-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2992-34-Копировать.jpg)
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2898-4-Копировать.jpg)       ![](http://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2971-26-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2898-4-Копировать.jpg)       ![](https://burakpehlivan.org/wp-content/uploads/2017/08/IMG_2971-26-Копировать.jpg)
 
 

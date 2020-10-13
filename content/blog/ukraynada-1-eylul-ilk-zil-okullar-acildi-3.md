@@ -6,7 +6,7 @@ tags: ["1 Eylül", "cernobil", "harun şirin", "ilk zil", "TUİD (Türk Ukrayna 
 type: post
 ---
 
-[![IMG_4217](http://burakpehlivan.org/wp-content/uploads/2016/09/IMG_42172.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/09/IMG_42172.jpg)
+[![IMG_4217](https://burakpehlivan.org/wp-content/uploads/2016/09/IMG_42172.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/09/IMG_42172.jpg)
 
 
 
@@ -36,6 +36,6 @@ Okul açılışından sonra TUİD başkanı Burak Pehlivan, beraberinde başkanv
 
 
 
-[![IMG_4211](http://burakpehlivan.org/wp-content/uploads/2016/09/IMG_4211.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/09/IMG_4211.jpg)
+[![IMG_4211](https://burakpehlivan.org/wp-content/uploads/2016/09/IMG_4211.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/09/IMG_4211.jpg)
 
 

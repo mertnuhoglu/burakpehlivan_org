@@ -6,7 +6,7 @@ tags: ["Baltık İş Forumu", "Baltık Ülkeleri", "Dış Ticaret", "Ekonomi", "
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1640-1.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1640-1.jpg)
 
 
 
@@ -37,7 +37,7 @@ Bir ülkedeki firmaların güçlü bir ihracat altyapısına sahip olması, yurt
 
 
 
-Buna karşılık Batı, Avrupa’ya ebedi barışın geleceği düşüncesiyle, bu ülkelerdeki büyük değişimleri cömert fonlarla desteklerken, IMF, Dünya Bankası ve yeni kurulan Avrupa İmar ve Kalkınma Bankası(EBRD) gibi kurumlar bu ülkelerdeki altyapı projelerini destekledi. Yapılanlar, halkın müthiş reform ve değişim isteğiyle de desteklenince, bu bölgedeki ülkeler birbiri ardına NATO ve AB üyelikleriyle zaten ait oldukları Batı’nın yeniden bir parçası oldular. Avrupa’da, o dönemde Alman rock grubu Scorpions’un efsane parçasında olduğu gibi Wind of Changes( değişimin rüzgarları) esiyordu. Bugün ise hem Türkiye’nin, hem de Avrupa’nın durumu, Avrupa’nın coğrafi göbeğinde bir ülke, Ukrayna yeniden kurulurken o gün olduğundan çok daha farklı.![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1363.jpg)
+Buna karşılık Batı, Avrupa’ya ebedi barışın geleceği düşüncesiyle, bu ülkelerdeki büyük değişimleri cömert fonlarla desteklerken, IMF, Dünya Bankası ve yeni kurulan Avrupa İmar ve Kalkınma Bankası(EBRD) gibi kurumlar bu ülkelerdeki altyapı projelerini destekledi. Yapılanlar, halkın müthiş reform ve değişim isteğiyle de desteklenince, bu bölgedeki ülkeler birbiri ardına NATO ve AB üyelikleriyle zaten ait oldukları Batı’nın yeniden bir parçası oldular. Avrupa’da, o dönemde Alman rock grubu Scorpions’un efsane parçasında olduğu gibi Wind of Changes( değişimin rüzgarları) esiyordu. Bugün ise hem Türkiye’nin, hem de Avrupa’nın durumu, Avrupa’nın coğrafi göbeğinde bir ülke, Ukrayna yeniden kurulurken o gün olduğundan çok daha farklı.![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1363.jpg)
 
 
 
@@ -57,7 +57,7 @@ Ukrayna'da, 600’dan fazla Türk firması  toplam tutarı 2 milyar doları ge�
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1481.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1481.jpg)
 
 
 Konuşmamın üzerinden yaklaşık iki yıl geçtikten sonra, geldiğimiz noktada ne yazık ki haklı çıktım. Batı’nın, Ukrayna maddi destekleri yetersiz kalırken, o gün ifade ettiğim nedenlerden dolayı yabancı sermaye yatırımları ülkede çok sınırlı olarak gerçekleşti. Öyle ki Türkiye, STA’nın yokluğuna rağmen son üç yılda Ukrayna'da en çok yatırım yapan ilk üç ülke arasında yer alıyor. Son birkaç yılda ülke bağımsızlık tarihinin ilk yirmi üç yılında gerçekleştirilenden daha fazla yapısal reforma imza atan, Batı tercihinden dolayı maddi ve manevi büyük bedeller ödeyen, fedakarlıklarda bulunan ülkede, değişimin olumlu sonuçlarının geniş halk kitleleri tarafından hissedilememesinden dolayı reform yorgunluğu yaşanıyor., Çalışabilir nüfusun %10’u ülke dışında çıkmış durumda. 2013 sonunda Polonya’da çalışan Ukraynalı sayısı yalnızca 250 bin kişiyken, 4 yılda 6 katına, bir buçuk milyona ulaştı. Evet, her yıl Ukraynalı Gastarbeiter’ler ülkelerine belki 10 milyar döviz gönderiyorlar ama bu rakam ülke içinde kaybedilen iş ve tüketim gücünün asla karşılığı olamaz. Halbuki Türkiye Ukrayna STA’sının imzalanması ülkenin başta Türkiye’den daha çok sermaye çekmesini sağlayacak, bu yatırımlar ise üçüncü ülkelerden ülkeye gelecek yatırımlar için katalizör görevi görecekti.
@@ -80,10 +80,10 @@ Ona göre kim zaten gurbette çalışmak ister ki? Bu sırada arabada kısa bir 
 
 **Burak PEHLİVAN**
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1572.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1641.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1572.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1641.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1392.jpg)  ![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1411.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1471.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1477.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1392.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1411.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1471.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1477.jpg)
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/04/MG_1483.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/04/MG_1483.jpg)

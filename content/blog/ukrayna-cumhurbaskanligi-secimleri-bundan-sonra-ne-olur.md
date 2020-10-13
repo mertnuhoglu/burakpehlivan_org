@@ -6,7 +6,7 @@ tags: ["Ekonomi", "Petro Poroşenko", "Politika", "Rusya", "secim", "Ukrayna", "
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/04/WhatsApp-Image-2019-04-22-at-23.24.48.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/04/WhatsApp-Image-2019-04-22-at-23.24.48.jpeg)
 
 Ukrayna’da adil, demokratik, özgür ve rekabetçi bir ortamda gerçekleşen seçimler sonucunda ülkenin 6. Cumhurbaşkanı olarak oyların yaklaşık %73’ünü alan eski komedyen Volodimir Zelenskiy seçildi. Mevcut başkan Petro Poroşenko’nun oy oranı ise %25’te kaldı.
 

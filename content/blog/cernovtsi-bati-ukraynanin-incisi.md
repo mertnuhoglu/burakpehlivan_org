@@ -6,7 +6,7 @@ tags: ["Batı Ukrayna", "Çernovtsi", "Gezi ve Restoran", "Hotin Seferi", "Tarih
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2012/08/chernivtsicity-e1501354754776.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2012/08/chernivtsicity-e1501354754776.jpeg)
 
 Çernovtsi geçtiğimiz günlerde Focus Dergisi tarafından Ukrayna’nın en yaşanılır yerleşim yeri şeçilmişti. Şehir, bu sıralamadaki birinciliğini hak ediyor doğrusu. Kiev’e 480 km mesafedeki bu kente yolum ilk düştüğünde hava artık kararmış, Batı Ukrayna’nın neredeyse tamamını kapsayan bir iş yolculuğunun sonunda, çalışma arkadaşım Saşa’dan direksiyonu devralmıştım. Biraz da doğaçlama gelişen bir seyahat olduğundan kalacağımız oteli önceden kararlaştırmamıştık. Bazıları tek yön olan, arnavut kaldırımı döşenmiş Çernovtsi’nin dar sokakları, Ukrayna’da değil de adeta bir Romen ya da bir Orta Avrupa kasabasında hareket ediyoruz hissi veriyordu bize. Nihayet bir otel bulup, yerleştik. Çok yorgun olmama rağmen bu şehri tanımayı sabaha bırakmak istemiyordum. Saşa yorgundu ama hem bir şeyler yemek, hem de şehirde bir tut atmak fikrimde beni yalnız bırakmadı.
 

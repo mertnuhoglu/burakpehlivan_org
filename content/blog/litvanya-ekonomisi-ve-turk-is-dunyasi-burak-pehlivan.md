@@ -6,7 +6,7 @@ tags: ["Aydan Yamancan", "Baltık Ülkeleri", "daib", "Dış Ticaret", "Doğu Av
 type: post
 ---
 
-[![IMG_3991](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_39911.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_39911.jpg)
+[![IMG_3991](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_39911.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_39911.jpg)
 
 
 
@@ -36,7 +36,7 @@ Vilnius’daki temaslarıma çerçevesinde ilk olarak Türkiye Cumhuriyeti Vilni
 
 
 
-![IMG_4002](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_4002.jpg)
+![IMG_4002](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_4002.jpg)
 
 
 
@@ -56,7 +56,7 @@ Vilnius Büyükelçiliğimiz dönemin diplomatlarının vizyonu, Litvanya’da i
 
 
 
-[![LT_EU](http://burakpehlivan.org/wp-content/uploads/2016/08/LT_EU.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/LT_EU.jpg)
+[![LT_EU](https://burakpehlivan.org/wp-content/uploads/2016/08/LT_EU.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/LT_EU.jpg)
 
 
 
@@ -71,7 +71,7 @@ Bir zamanlar Avrupa’nın en büyük ülkesi olan Litvanya bugün belki küçü
 
 
 
-[![Vilnius-Lithuania-651598](http://burakpehlivan.org/wp-content/uploads/2016/08/Vilnius-Lithuania-651598.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/Vilnius-Lithuania-651598.jpg)
+[![Vilnius-Lithuania-651598](https://burakpehlivan.org/wp-content/uploads/2016/08/Vilnius-Lithuania-651598.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/Vilnius-Lithuania-651598.jpg)
 
 
 
@@ -96,7 +96,7 @@ Litvanya’da yüksek bir eğitim düzeyi var, nitelikli eğitime önem verilmes
 
 
 
-[![Trakai-castle-Lithuania](http://burakpehlivan.org/wp-content/uploads/2016/08/Trakai-castle-Lithuania.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/Trakai-castle-Lithuania.jpg)
+[![Trakai-castle-Lithuania](https://burakpehlivan.org/wp-content/uploads/2016/08/Trakai-castle-Lithuania.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/Trakai-castle-Lithuania.jpg)
 
 
 
@@ -126,7 +126,7 @@ Türkiye Litvanya İşadamları Derneği yok, Vilnius'ta yaptığım görüşmel
 
 
 
-[![BsqN5jOCEAA2LTS_thumb_169_1406126191_1406126126_800_450_c1](http://burakpehlivan.org/wp-content/uploads/2016/08/BsqN5jOCEAA2LTS_thumb_169_1406126191_1406126126_800_450_c1.png)](http://burakpehlivan.org/wp-content/uploads/2016/08/BsqN5jOCEAA2LTS_thumb_169_1406126191_1406126126_800_450_c1.png)
+[![BsqN5jOCEAA2LTS_thumb_169_1406126191_1406126126_800_450_c1](https://burakpehlivan.org/wp-content/uploads/2016/08/BsqN5jOCEAA2LTS_thumb_169_1406126191_1406126126_800_450_c1.png)](https://burakpehlivan.org/wp-content/uploads/2016/08/BsqN5jOCEAA2LTS_thumb_169_1406126191_1406126126_800_450_c1.png)
 
 
 

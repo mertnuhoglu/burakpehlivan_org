@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Ekonomi", "Kiev", "röportaj", "TUİD", "TUİD (Türk 
 type: post
 ---
 
-[![DSC_3662-001](http://burakpehlivan.org/wp-content/uploads/2016/05/DSC_3662-001.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/05/DSC_3662-001.jpg)
+[![DSC_3662-001](https://burakpehlivan.org/wp-content/uploads/2016/05/DSC_3662-001.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/05/DSC_3662-001.jpg)
 
 
 
@@ -36,7 +36,7 @@ Ukrayna’nın en büyük stadyumu, başkent Kiev’i dünyaya bağlayan Borispo
 
 
 
-[![DSC_3671-001](http://burakpehlivan.org/wp-content/uploads/2016/05/DSC_3671-001.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/05/DSC_3671-001.jpg)
+[![DSC_3671-001](https://burakpehlivan.org/wp-content/uploads/2016/05/DSC_3671-001.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/05/DSC_3671-001.jpg)
 
 
 
@@ -66,7 +66,7 @@ Ukrayna, seçimini yaptı ve yönünü batıya döndü. Avrupa Birliği ile Orta
 
 
 
-[![KİEV](http://burakpehlivan.org/wp-content/uploads/2016/05/KİEV.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/05/KİEV.jpg)
+[![KİEV](https://burakpehlivan.org/wp-content/uploads/2016/05/KİEV.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/05/KİEV.jpg)
 
 
 

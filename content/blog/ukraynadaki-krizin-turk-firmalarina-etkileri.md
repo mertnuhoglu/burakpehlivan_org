@@ -6,7 +6,7 @@ tags: ["Ekonomi", "Etkileri", "imza attılar", "önemli projelere", "Türk Firma
 type: post
 ---
 
-[![ukraynadaki-krizin-turk-firmalarina-etkileri](http://burakpehlivan.org/wp-content/uploads/2014/02/ukraynadaki-krizin-turk-firmalarina-etkileri1.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/ukraynadaki-krizin-turk-firmalarina-etkileri1.jpg)
+[![ukraynadaki-krizin-turk-firmalarina-etkileri](https://burakpehlivan.org/wp-content/uploads/2014/02/ukraynadaki-krizin-turk-firmalarina-etkileri1.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/ukraynadaki-krizin-turk-firmalarina-etkileri1.jpg)
 
 Ukrayna’da başlangıçta Avrupa Birliği yanlısı gösteriler olarak başlayan ancak daha sonra hükümet karşıtı protestolara dönüşen olaylar 3. ayını bitirdi. Sürecin nereye gideceğini kestirmek kolay değil zira toplumsal olayların nasıl gelişip, sonuçlanacağını önceden öngörmek hemen hemen imkansız. Ukrayna bağımsızlığını ilan ettiği günden beri neredeyse terör olayı yaşamamış bir ülke. Halk barışçıl, uzlaşmacı, demokrat bir karektere sahip buna rağmen özellikle son yaşanan şiddet olayları herkes açısından şaşırtıcı oldu. Umuyoruz ki demokrasi içerisinde en kısa zamanda taraflar uzlaşır, ülkenin ve halkının menfaatine olan ortak bir noktada anlaşma sağlanır.
 
@@ -19,7 +19,7 @@ Yaşananlardan elbetteki iş dünyası olumsuz etkilendi, etkileniyor. Ekonomi 2
 
 Ukrayna’da Türkler dün iş yapmaya başlamadılar. Ülkenin en zor zamanlarında da Türk firmaları burada iş yapıyordu. 700 civarında Türk sermayeli firma bugüne kadar bu ülkeye üçüncü ülkelerden gönderilen sermaye ile birlikte 2 milyar doların üzerinde kaynakgetirdi. Türk şirketleri ağırlıklı olarak, perakende, inşaat, iletişim, lojistik gibi alanlarda aktifler.
 
-[![ukraynadaki-krizin-turk-firmalarina-etkileri2](http://burakpehlivan.org/wp-content/uploads/2014/02/ukraynadaki-krizin-turk-firmalarina-etkileri2.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/ukraynadaki-krizin-turk-firmalarina-etkileri2.jpg)
+[![ukraynadaki-krizin-turk-firmalarina-etkileri2](https://burakpehlivan.org/wp-content/uploads/2014/02/ukraynadaki-krizin-turk-firmalarina-etkileri2.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/ukraynadaki-krizin-turk-firmalarina-etkileri2.jpg)
 
 
 Türk Müteahhitler Ukrayna’da önemli projelere imza attılar

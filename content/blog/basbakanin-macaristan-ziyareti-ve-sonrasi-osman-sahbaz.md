@@ -6,7 +6,7 @@ tags: ["Fidesz-KDNP", "Genç Demokratlar Birliği", "Hıristiyan Demokrat Halk P
 type: post
 ---
 
-[![basbakanin-macaristan-ziyareti-ve-sonrasi](http://burakpehlivan.org/wp-content/uploads/2013/02/basbakanin-macaristan-ziyareti-ve-sonrasi.jpg)](http://burakpehlivan.org/1281/basbakanin-macaristan-ziyareti-ve-sonrasi-osman-sahbaz/basbakanin-macaristan-ziyareti-ve-sonrasi/)
+[![basbakanin-macaristan-ziyareti-ve-sonrasi](https://burakpehlivan.org/wp-content/uploads/2013/02/basbakanin-macaristan-ziyareti-ve-sonrasi.jpg)](https://burakpehlivan.org/1281/basbakanin-macaristan-ziyareti-ve-sonrasi-osman-sahbaz/basbakanin-macaristan-ziyareti-ve-sonrasi/)
 
 **Türk Macar İşadamları Derneği(TÜMİŞAD) yönetim Kurulu başkanı Osman Şahbaz\*, Başkaban Recep Tayyip Erdoğan’ın tarihi Macaristan ziyaretini konuk yazar olarak değerlendirdi.** 
 

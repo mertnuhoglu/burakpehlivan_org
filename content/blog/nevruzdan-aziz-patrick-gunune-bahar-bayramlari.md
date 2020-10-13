@@ -26,7 +26,7 @@ type: post
 
 
 
-![200313_02](http://burakpehlivan.org/wp-content/uploads/2012/03/200313_02.jpg)
+![200313_02](https://burakpehlivan.org/wp-content/uploads/2012/03/200313_02.jpg)
 
 **
 Nevruz’dan, Aziz Patrick Günü’ne Bahar Bayramları**

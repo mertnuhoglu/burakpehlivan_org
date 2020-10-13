@@ -6,7 +6,7 @@ tags: ["AA", "Anadolu Ajansı", "Ekonomi", "lobi", "Musab Turan", "Politika", "s
 type: post
 ---
 
-[![aa_roportaj_burak_pehlivan](http://burakpehlivan.org/wp-content/uploads/2015/06/aa_roportaj_burak_pehlivan.png)](http://burakpehlivan.org/wp-content/uploads/2015/06/aa_roportaj_burak_pehlivan.png)
+[![aa_roportaj_burak_pehlivan](https://burakpehlivan.org/wp-content/uploads/2015/06/aa_roportaj_burak_pehlivan.png)](https://burakpehlivan.org/wp-content/uploads/2015/06/aa_roportaj_burak_pehlivan.png)
 **Rusya ve ABD-AB ittifakının karşı karşıya geldiği Ukrayna'da lobi savaşı yaşanıyor.**
 
 Türk Ukrayna İşadamları Derneği (TUİD) Başkanvekili Burak Pehlivan, "Türkiye, özellikle Ukrayna'da yeni ekonomik altyapının oluşturulmasında katkıda bulunabilir, yapısal reformların gerçekleşmesinde daha etkin bir rol alabilir" dedi.

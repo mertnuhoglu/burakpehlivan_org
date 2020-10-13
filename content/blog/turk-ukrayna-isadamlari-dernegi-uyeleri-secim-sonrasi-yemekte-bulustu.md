@@ -6,7 +6,7 @@ tags: ["8. Olağan genel kurulu", "Buluştu", "dernek üyeleri", "mangal restora
 type: post
 ---
 
-[![DSCN0003](http://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0003.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0003.jpg)
+[![DSCN0003](https://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0003.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0003.jpg)
 Uluslararası Türk Ukrayna İşadamları Derneği’nin(TUİD), 8. Olağan genel kurulu sonrasında dernek üyeleri, Kiev Mangal restoranda bir araya geldi. Yeni yönetim kurulu tarafından verilen yemeğe, TUİD’in genel uygulamasının aksine, yalnızca dernek üyeleri davet edildi.
 
 Organizasyonun başında bir konuşma yapan TUİD başkanvekili Burak Pehlivan, başarılı, şeffaf bir seçim sürecini geride bıraktıklarını, seçimde tek liste olmasına ve Ukrayna’nın yaşadığı bu zor günlere rağmen kongreye yüksek katılımın kendilerini memnun ettiğini belirterek, “Son iki yılda Ukrayna çok zor ekonomik ve siyasi bir dönemden geçiyor, bayrağı devreden yönetim kurulumuz böyle bir dönemde görev yaptı, krize rağmen yeni üyeler derneğimize kazandırıldı, Doğu Avrupa’daki Türk işadamı dernekleriyle ilişkiler geliştirilirken, Ukrayna’daki Amerikan, İtalyan, Alman ve Azerbaycan işadamları dernekleriyle, sanayi ve ticaret odalarıyla ortak etkinliklere imza attık, Türkiye’den ise birçok işadamı derneğini Ukrayna’da konuk ettik. Harkov ve Odesa şubelerimize ek olarak Herson şubemizi açtık. İstanbul Temsilciliğimizin ise faaliyetlerin genişlettik. Dernek güçlü bir mali yapıya kavuşturuldu, başarılı bir profesyonel kadromuz var, dünyada en çok takip edilen, yurtdışı Türk işadamı derneği sitesine sahibiz. Bu dönemde yalnız, işe, ticarete dönük organizasyonlar değil, kültürel organizasyonlar da düzenlemeye çalıştık, ülkemizin kültürüne, sanatına ilişkin faaliyetlere sponsor olduk” dedi.
@@ -19,9 +19,9 @@ Yeni yönetim kurulu üyelerinden, UFO Ukrayna genel müdürü Barış Ülkü is
 TUİD başkanvekilliği ve aynı zamanda Azerbaycan ve Ukrayna Sanayici ve İşadamları Derneği başkanlığı görevlerini yürüten Ali Aliyev ise, 3 dönemdir TUİD yönetiminde görev yaptığını, aynı zamanda önemli bir derneğin başkanlığını da yürüttüğünü belirterek, böyle çetin zamanlarda işadamlarının birlik ve beraberlik içerisinde organizasyonlar yapmalarının zor olduğunun hatırlattı. Aliyev, bugünkü organizasyonun ve TUİD’in bugüne kadar üstlendiği vazifenin bu noktada çok önemli olduğunu altını çizdi. Ali Aliyev, gelecek dönemde de aynı azim ve kararlılıkla çalışmalarına devam edeceklerinin ifade ederek konuşmasını sonlandırdı.
 Daha sonra söz alan TUİD üyeleri yönetim kurulundan beklentilerini dile getirirlerken, yeni yönetim kurulu ve yönetim organlarına başarılar dilediler.
 
-[![DSCN0001](http://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0001.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0001.jpg)
-[![DSCN0011](http://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0011.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0011.jpg)
-[![DSCN0013](http://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0013.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0013.jpg)
+[![DSCN0001](https://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0001.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0001.jpg)
+[![DSCN0011](https://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0011.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0011.jpg)
+[![DSCN0013](https://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0013.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/DSCN0013.jpg)
 
 ![DSCN0014](http://tuid.org.ua/wp-content/uploads/2015/04/DSCN0014.jpg)
 

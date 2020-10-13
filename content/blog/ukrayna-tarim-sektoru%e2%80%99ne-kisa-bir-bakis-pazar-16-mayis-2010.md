@@ -16,7 +16,7 @@ type: post
 
 
 
-![ukraynada-tarim-metalurjiyi-solladi-800x600](http://burakpehlivan.org/wp-content/uploads/2010/05/ukraynada-tarim-metalurjiyi-solladi.jpg)
+![ukraynada-tarim-metalurjiyi-solladi-800x600](https://burakpehlivan.org/wp-content/uploads/2010/05/ukraynada-tarim-metalurjiyi-solladi.jpg)
 
 Ukrayna'da, Cumhurbaşkanlığı Seçimleri' nde sonra, Cumhurbaşkanlığı makamıyla uyumlu hükümetin kurulmasıyla ülke yönetimine görece istikrar gelmiş durumda. Yüksek Rada' da, ülkeyi yöneten Yanukoviç-Azarov tandeminin yasa yapma gücüne muktedir olması, iktidara, ülkenin ivedilikle gereksinimi olan idari, mali ve ekonomik reformları yapma şansını tanıyor. Bu da ümit ederiz ki, ekonominin çarklarının önce dönmeye başlamasını daha sonra da hızlanmasını beraberinde getirecektir. İlerleyen dönemde, ülkenin güçlü olduğu tüm sektörlerde yatırımların ve büyümenin önünü açılması sürpriz olmayacaktır. Tarım da bu sektörlerin başlıcalarından biri. Tarım sektörü, ülkemiz açısından önemli olduğu kadar, Ukrayna ekonomisi için de önemli. Oransal olarak baktığımızda, bu sektör, Ukrayna GSMH' sının %8' ni oluşturuyor. Bu oran, alanında Dünya'nın ikinci en yüksek oranı. Ülke ihracat gelirlerinin %20' si bu sektörden geliyor. Tarım firmalarının toplam sermaye birikimi 4 milyar  $'ı aşmış durumda.
 

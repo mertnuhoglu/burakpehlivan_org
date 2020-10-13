@@ -9,7 +9,7 @@ type: post
 > 
 
 > 
-> ![](http://burakpehlivan.org/wp-content/uploads/2020/04/CFABB40B-DEA0-4647-89A0-C7794631CA98-752x1024.jpeg)\*Ukrayna'nı saygın iş ve ekonomi dergilerinden LDaily'ye Türkiye Ukrayna ekonomik ilişkileriyle ilgili bir röportaj verdim. Ukrayna'daki Türk sermayesinin toplam tutarı 3 milyar$'ı geçti. Türkiye ve Ukrayna arasında imzalanacak SerbestTicaret Antlaşması karşılıklı ticareti olduğu kadar, yatırımları da artıracak. Bu zor günleri bekleyerek değil daha çok çalışarakgeçirebilirsek, yeniden işler açıldığında büyüme başladığındaTürkiye Ukrayna ekonomik ilişkileri daha da güçlenecek. 
+> ![](https://burakpehlivan.org/wp-content/uploads/2020/04/CFABB40B-DEA0-4647-89A0-C7794631CA98-752x1024.jpeg)\*Ukrayna'nı saygın iş ve ekonomi dergilerinden LDaily'ye Türkiye Ukrayna ekonomik ilişkileriyle ilgili bir röportaj verdim. Ukrayna'daki Türk sermayesinin toplam tutarı 3 milyar$'ı geçti. Türkiye ve Ukrayna arasında imzalanacak SerbestTicaret Antlaşması karşılıklı ticareti olduğu kadar, yatırımları da artıracak. Bu zor günleri bekleyerek değil daha çok çalışarakgeçirebilirsek, yeniden işler açıldığında büyüme başladığındaTürkiye Ukrayna ekonomik ilişkileri daha da güçlenecek. 
 > 
 > 
 

@@ -8,7 +8,7 @@ type: post
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/06/DSC_1845.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/06/DSC_1845.jpg)
 
 Türkiye, geçtiğimiz haftalarda önemli bir organizasyona ev sahipliği yaptı. Siyaset gündeminin gölgesinde kalsa da İstanbul’da düzenlenen organizasyonun ismi Eurowoman Global Woman's Business Forumu. Her yıl farklı ülkelerde düzenlenen bu çalıştay için Türkiye’nin seçilmesinde ülkemizde kadınların iş gücüne katılımının giderek artması da ön ayak olmuş durumda. Avrupa, Afrika, Asya ve Amerika’dan 30’dan fazla ülkeyi buluşturan bu organizasyona bu yıl 150’den fazla iş kadını katıldı. İngiltere’nin Londra, Ukrayna’nın ise Odessa kenti merkezli bu organizasyon 3 gün sürdü. Forumda, 2020'ye yaklaşırken yeni iş modelleri ve trendleri, dünya ekonomisinin gidişatı, Avrupa-Asya- Ticari Gelişmeleri, Türkiye’de yatırım ve ticaret fırsatları gibi konular ele alınırken, karşılıklı iş görüşmeleri yapıldı, ticari anlaşmalar imzalandı. 45 farklı konuşmacının sunum yaptığı organizasyonda tek erkek katılımcı ise onur konuğu olarak davet edilen TÜRKONFED International Başkanı Burak Pehlivan oldu.
 
@@ -43,4 +43,4 @@ Türkiye’nin Ukrayna Büyükelçisi Yağmur Ahmet Güldere, Ticaret Müşaviri
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/06/DSC_1767-e1561499305381.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/06/DSC_1792.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/06/DSC_0014.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/06/DSC_1767-e1561499305381.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/06/DSC_1792.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/06/DSC_0014.jpg)

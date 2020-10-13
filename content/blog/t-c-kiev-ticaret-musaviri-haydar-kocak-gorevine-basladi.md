@@ -8,7 +8,7 @@ type: post
 
  
 
-[![DSCN0800](http://burakpehlivan.org/wp-content/uploads/2015/09/DSCN0800.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/09/DSCN0800.jpg)
+[![DSCN0800](https://burakpehlivan.org/wp-content/uploads/2015/09/DSCN0800.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/09/DSCN0800.jpg)
 
 Türkiye Cumhuriyeti Kiev Ticaret Müşavirliği görevine atanan Haydar Koçak, Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) genel merkezine bir nezaket ziyareti gerçekleştirdi. Koçak, burada TUİD başkanvekili Burak Pehlivan tarafından karşılandı.
 

@@ -6,7 +6,7 @@ tags: ["bratislava", "Gülhan Ulutekin", "ilişkileri", "Mehmet Seyfettn Küçü
 type: post
 ---
 
-[![fotograf (6)](http://burakpehlivan.org/wp-content/uploads/2013/10/fotograf-6.jpg)](http://burakpehlivan.org/1925/slovakya-turkiye-iliskileri-tarihinin-en-iyi-doneminde/fotograf-6/)
+[![fotograf (6)](https://burakpehlivan.org/wp-content/uploads/2013/10/fotograf-6.jpg)](https://burakpehlivan.org/1925/slovakya-turkiye-iliskileri-tarihinin-en-iyi-doneminde/fotograf-6/)
 Doğu Avrupa Türk İşadamları Dernekleri Birliği(DAİB) projesi kapsamında Slovakya’ya giden TUİD Heyeti, Bratislava’da Türkiye Cumhuriyeti Bratislava Büyükelçisi Gülhan Ulutekin tarafından kabul edilirken, kabulde Bratislava Ticaret Müşaviri Yeşim Bayam Pakbeşe’de hazır bulundu.
 
 TUİD Yönetim kurulu başkanı Burak Pehlivan görüşmenin başında TUİD ve derneğin DAİB projesi hakkında büyükelçi Gülhan Ulutekin’e kısa bir sunum yaptı. Slovakya’nın Ukrayna ile komşu ülkelerden biri olduğunu, özellikle AB ile serbest ticaret antlaşması imzalanması durumunda, Slovakya ile Ukrayna arasındaki ticaretin artacağını,  Ukrayna’daki Türk işadamlarının ürünlerini bu ülkeye daha rahat satabileceğini ve karşılıklı olarak yeni fırsatlar oluşacağına inandıklarını belirtti. Pehlivan, "Slovakya ciddi yabancı sermaye stoğuna sahip bir ülke, kümaltif olarak kişi başın 12.000 $ yabancı sermayeyi yalnızca 20 yılda almış, güçlü bir üretim gücü ve ihracatı var, 5,5 milyonluk Slovakya, 75 milyonluk Türkiye kadar otomotiv ihracatı yapıyor, bu örnek alınması gereken bir durum” dedi.
@@ -25,5 +25,5 @@ http://www.zaman.com.tr/gundem\_turk-ukrayna-isadamlari-slovakyaya-gitti\_214718
 
  
 
-[![fotograf](http://burakpehlivan.org/wp-content/uploads/2013/10/fotograf.jpg)](http://burakpehlivan.org/1925/slovakya-turkiye-iliskileri-tarihinin-en-iyi-doneminde/fotograf-4/)
-[![fotograf (4)](http://burakpehlivan.org/wp-content/uploads/2013/10/fotograf-4.jpg)](http://burakpehlivan.org/1925/slovakya-turkiye-iliskileri-tarihinin-en-iyi-doneminde/fotograf-4-2/)
+[![fotograf](https://burakpehlivan.org/wp-content/uploads/2013/10/fotograf.jpg)](https://burakpehlivan.org/1925/slovakya-turkiye-iliskileri-tarihinin-en-iyi-doneminde/fotograf-4/)
+[![fotograf (4)](https://burakpehlivan.org/wp-content/uploads/2013/10/fotograf-4.jpg)](https://burakpehlivan.org/1925/slovakya-turkiye-iliskileri-tarihinin-en-iyi-doneminde/fotograf-4-2/)

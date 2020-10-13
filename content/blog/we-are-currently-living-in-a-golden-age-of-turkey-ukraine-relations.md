@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Dış Ticaret", "Ekonomi", "English", "English Article
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/11/BURAK_PORTRAIT_5870679435afe4bcf12bc4b2a9297939.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/11/BURAK_PORTRAIT_5870679435afe4bcf12bc4b2a9297939.jpg)
 
 TUID Chairman Burak Pehlivan discusses the strengthening economic relationship between Turkey and Ukraine and the potentially game-changing impact of a long-awaited free trade agreement breakthrough between the two Black Sea neighbors
 

@@ -6,7 +6,7 @@ tags: ["T.C Kiev Büyükelçisi", "TUİD", "TUİD (Türk Ukrayna İşadamları D
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/IMG_7809-3-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/IMG_7809-3-Копировать.jpg)
 
 
 
@@ -34,6 +34,6 @@ Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel, TUİD’in yalnız ba
 TUİD 9. dönem yönetim kurulunun T.C. Kiev Büyükelçiliği'ne ziyareti, hatıra fotoğrafı çekilmesiyle sona ererken, ziyaretin akabinde 9. dönemin ikinci yönetim kurulu toplantısı, TUİD genel merkezinde gerçekleştirildi. 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/IMG_7812-5-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/IMG_7812-5-Копировать.jpg)
 
 www.tuid.org.ua

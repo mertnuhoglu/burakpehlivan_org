@@ -6,7 +6,7 @@ tags: ["TUİD (Türk Ukrayna İşadamları Derneği)"]
 type: post
 ---
 
-![kiev-ukrayna](http://burakpehlivan.org/wp-content/uploads/2016/11/Kiev-Ukrayna.jpg)
+![kiev-ukrayna](https://burakpehlivan.org/wp-content/uploads/2016/11/Kiev-Ukrayna.jpg)
 
 Ukrayna’da iş yapan işadamlarımızın sorunlarını, ülkede iş yapan diğer yabancı ülke işadamlarının ve yabancı sermayeli şirketlerin sorunlarından ayrı düşünmek mümkün değil. Bu nedenle ülkede iş yapmayı zorlaştıran etkenleri genel olarak ele aldıktan sonra, Türkler açısından iş yapmayı kolaylaştıracak parametreleri ortaya koymak daha uygun olacaktır. Ancak şunun da altını çizmek lazım ki, Ukrayna Türkiye dış ticaret hacmini bugünkü 4,6 milyar dolarlık seviyeden, 5 yılda iki ülkenin liderlerinin koyduğu 15 milyar dolarlık hedefe ulaştırabilmek için en önemli gündem maddesi, bu raporun sonunda değinilen ve müzakereleri 2007 yılından beri devam eden Ukrayna Türkiye Serbest Ticaret Antlaşması’nın (STA) bir an önce imzalanmasından geçmektedir. Zira AB ile artık STA’sı olan Ukrayna’ya AB malları gümrüksüz olarak girebilirken, Türk menşeli ürünler yerine göre %12’lere varan  gümrük vergileriyle Avrupalı rakipleri karşısında Ukrayna’da rekabet avantajlarını günden güne kaybetmektedirler.
 

@@ -8,7 +8,7 @@ type: post
 
  
 
-**![](http://burakpehlivan.org/wp-content/uploads/2018/07/c08ff7b74aff408db5ef5f0dea651.jpg) **
+**![](https://burakpehlivan.org/wp-content/uploads/2018/07/c08ff7b74aff408db5ef5f0dea651.jpg) **
 
 Ukrayna para birimi grivna dolar karşısında son on yılda iki büyük devalüasyon yaşadı. İlk devalüasyon öncesi bir dolar beş grivnadan işlem görürken, 2008 yılı global ekonomik kriziyle birlikte grivnanın dolar karşısında %50 değer kaybetmesiyle bu önce 10’a çıktı, sonra yaklaşık beş yıl boyunca 8’de sabitlendi. İkinci büyük devalüasyon ise 2014 yılındaki Avrupa Meydanı Devrimi sonrasında Kırım’ın Rusya Federasyonu tarafından ilhakı, o dönemde ülke sanayisinin %25’inin bulunduğu Doğu Ukrayna’daki Donbas Bölgesindeki istikrarsızlık, dış ticarette %35 paya sahip olan Rusya pazarının büyük ölçüde kaybedilmesiyle ihracatın dip yapması, yine o dönemde grivnanın çok bağlı oluğu Rus rublesinin yüksek değer kaybı, durgunluk ve tüm bunların sonucunda daralan ekonomiyle birlikte 2015 yılının şubat ayında 1 doların 35 grivnadan işlem görmesiyle yaşanırken, grivnadaki  değer kaybı bir ara %77’yi buldu. Ancak Batı'nın, Ukrayna’nın IMF ile yaptığı 17,5 milyar dolarlık antlaşmanın omurgasını oluşturduğu 35 milyar dolarlık mali destek paketini açıklaması, bankacılık sektörü başta olmak üzere ülkede gerçekleştirilen yapısal reformlar, siyasi ve ekonomik istikrarın yeniden sağlanmasıyla kur bu seviyelerden hızla geriledi, aynı yılın nisan ayında 1 dolar 21 grivnaya kadar geldi. Daha sonra kademeli olarak kur yükselse de ortalama kur
 
@@ -24,7 +24,7 @@ Amerika’da peş peşe gerçekleştirilen faiz artırımları, güçlü dolara 
 
 IMF ile yapılan antlaşma ilerleyemezken, Ukrayna para fonundan son ödemeyi, ancak 2017’nin nisanında alabilirken, bu durum peki nasıl sağlanıyor? Hükümetin, kuru yalnızca suni yöntemler kullanarak bu seviyelerde tutması mümkün mü? Gelin bu soruların cevaplarını ve kurun nerelere gidebileceğini beraber analiz edelim.
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/07/1993ee51fc918141d1d74956d501249f-640x394.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/07/1993ee51fc918141d1d74956d501249f-640x394.jpeg)
 
 Öncelikle şunu hatırlatmakta yarar var Ukrayna para birimi daha önceki yıllarda diğer para birimlerine göre yüksek derece negatif ayrışma yaşamıştı, dolayısıyla karşımızda düşük bir baz var. Ayrıca, Ukrayna’da sermaye piyasaları gelişmediği ve dünya ile yeterince entegre olmadığı için, bu durum global piyasalardaki değişimlerde, Ukrayna grivnasının tepkisiz kalmasını kolaylaştırıyor.
 
@@ -418,7 +418,7 @@ Türkiye’nin turizm ve nakliye gibi sektörlerden azımsanmayacak bir geliri v
 
 Bugün Ukrayna’nın çalışabilir nüfusunun  yaklaşık %16’lık bölümü yurtdışında geçici ya da sezonluk işçi olarak çalışıyor. Çok değil 5 yıl önce komşu Polonya’da çalışan Ukraynalı sayısı 250 binken, bugün 1,5 milyonu geçmiş durumda. Yurtdışında çalışan, Ukraynalılar, Merkez Bankası verilerine göre yılın ilk çeyreğinde resmi kanallarla ülkelerine 2,6 milyar $ gönderdiler. Bu geçen yılın aynı dönemine göre %34, 2015’e göre ise %75 artış demek. Üstelik, Rusya ile para transferinin yasak olduğu düşünüldüğünde, aynı şekilde başta Polonya olmak üzere komşu ülkelerde çalışan Ukraynalılar'ın beraberlerinde de döviz getirdikleri göz önüne alındığında reel yurtdışı işçi dövizlerinin resmi istatistiklerden %40 kadar fazla olduğu düşünülüyor. Bu durumda bu yıl 10-12 milyar dolar, yani ülke gayrisafi milli hasılasının en az %10’u kadar da işçi dövizinin ekonomiye girdiğini görmüş olacağız. Bu kaynak bile tek başına ülkenin dış ticaret açığını kapatıyor.
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/07/146305.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/07/146305.jpg)
 
 İktisatçı değilim, kaldı ki iyi iktisatçılar, döviz kurlarının seyrini doğru zaman ve doğru rakamla tahmin edebiliyor olsalardı, sanırım bugün dünyanın en zengin insanları arasında birçok iyi iktisatçıyı görürdük. Ancak veriler ışığında Ukrayna’da döviz kurunun sene sonunda kadar hatta mart ayındaki cumhurbaşkanlığı seçimlerine kadar nasıl seyredebileceğini tahmin edebiliriz.
 

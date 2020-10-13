@@ -6,7 +6,7 @@ tags: ["Belkıs Gürsel Güleç", "Kiev'de Bayram", "Kiev'de Ramazan", "Kiev’d
 type: post
 ---
 
-[![DSCN9616](http://burakpehlivan.org/wp-content/uploads/2014/07/DSCN9616.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/07/DSCN9616.jpg)
+[![DSCN9616](https://burakpehlivan.org/wp-content/uploads/2014/07/DSCN9616.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/07/DSCN9616.jpg)
 Ukrayna’daki Türk işadamları ve profesyoneller, Türk Ukrayna İşadamları Derneği’nin (TUİD) Kiev’deki genel merkezinde düzenlenen etkinlikte bir araya gelerek bayramlaştılar. Bayramlaşma organizasyonuna Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel’in yanı sıra, Pakistan’ın Ukrayna Büyükelçisi Vacihat Ali Müfti de maiyetleriyle teşrif ettiler.
 
 Törenin başında bir konuşma yapan TUİD başkanvekili Burak Pehlivan, her yıl artık geleneksel olarak TUİD genel merkezinde bu bayramlaşma törenlerini düzenlediklerini belirterek, kültürümüzde önemli bir yer tutan bayramların, yurtdışındaki Türkler için daha da bir anlam içerdiğinin altını çizdi. Pehlivan, bu yıl ki bayramlaşmanın daha da anlamlı olduğunu, zira Ukrayna’da son aylarda yaşanan tüm siyasi ve ekonomik problemlere rağmen, Ukrayna’daki Türk iş dünyasının güçlü bir biçimde organizasyona iştirak ettiğini, bunun da ülkedeki Türkler arasındaki birlik ve beraberliğin güzel bir işareti olduğunu ifade ederek sözlerini tamamladı.

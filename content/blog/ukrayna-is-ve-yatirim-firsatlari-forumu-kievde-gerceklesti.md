@@ -6,7 +6,7 @@ tags: ["Ekoavrasya", "forum", "TUİD", "TUİD (Türk Ukrayna İşadamları Derne
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/20017473_10155459055289544_1794450366006333724_o.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/20017473_10155459055289544_1794450366006333724_o.jpg)
 
 
 
@@ -26,7 +26,7 @@ Yatırım Konferansını açılış konuşmasını yapan TPPU Başkan Yardımcı
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/DSC_7067.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/DSC_7067.jpg)
 
 
 
@@ -36,7 +36,7 @@ TUİD yönetim kurulu başkanı Burak Pehlivan ise, TPPU’nun büyük bir jest 
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/DSC_6471.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/DSC_6471.jpg)
 
 
 
@@ -56,9 +56,9 @@ Türk işadamı Yatırım Forumu kapsamında son olarak, Ukrayna’nın ilk Orga
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/DSC_3982.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/07/DSC_3987.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/07/DSC_4018.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/DSC_3982.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/07/DSC_3987.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/07/DSC_4018.jpg)
 
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8564-8-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8573-13-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8600-32-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8608-38-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8611-40-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8650-63-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8669-70-Копировать.jpg)  ![](http://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8735-113-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8564-8-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8573-13-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8600-32-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8608-38-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8611-40-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8650-63-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8669-70-Копировать.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2017/07/IMG_8735-113-Копировать.jpg)

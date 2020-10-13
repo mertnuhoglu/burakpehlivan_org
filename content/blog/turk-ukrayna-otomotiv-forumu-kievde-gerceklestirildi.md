@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Dış Ticaret", "Ekonomi", "Sergey Filipenko", "TUİD 
 type: post
 ---
 
-[![DSCN1087](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1087.jpg)](http://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1087/)
+[![DSCN1087](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1087.jpg)](https://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1087/)
 
 Bu yıl ikincisi düzenlenen Türk Ukrayna Otomotiv Forumu, Ukrayna Sanayi ve Ticaret Odası’nda iki ülkeden 80’in üzerinde firmanın katılımıyla gerçekleştirildi. Forumda, Ukrayna’da üretim yapan 11 ayrı markanın üst yöneticileri ve Ukrayna aftermarket pazarının önemli oyuncularıyla, Türk yan sanayi firmaları bir araya geldiler.
 
@@ -17,13 +17,13 @@ Daha sonra bir konuşma yapan TUİD başkanvekili Burak Pehlivan ise, Türkiye i
 Forum esnasında görüştüğümüz ülkenin en büyük otomotiv grubu Ukravto’nun yönetim kurulu başkanvekili Sergey Filipenko ise geçen yıl birincisi düzenlenen bu organizasyon sayesinde lastik ve ayna alımlarını Türkiye’ye kaydırdıklarını, bu sene ise başta koltuk olmak üzere başka kalemlerde de Türkiye’den alım yapmaya başlamayı planladıklarını belirtti.
 Türk Ukrayna Otomotiv zirvesi, Türk Ukrayna İşadamları Derneği Genel Merkezi’nde forum katılımcılarına verilen Ukrayna Ülke ve Ukrayna Otomotiv Sektör sunumlarının sonrasında gerçekleşen kokteyl ile sona erdi.
 
-[![DSCN1119](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1119.jpg)](http://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1119/)
+[![DSCN1119](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1119.jpg)](https://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1119/)
 
-[![DSCN1122](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1122.jpg)](http://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1122/)
+[![DSCN1122](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1122.jpg)](https://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1122/)
 
-[![DSCN1068](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1068.jpg)](http://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1068/)
+[![DSCN1068](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1068.jpg)](https://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1068/)
 
-[![DSCN1075](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1075.jpg)](http://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1075/)
+[![DSCN1075](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1075.jpg)](https://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1075/)
 
-[![DSCN1172](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1172.jpg)](http://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1172/)
-[![DSCN1152](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1152.jpg)](http://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1152/)
+[![DSCN1172](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1172.jpg)](https://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1172/)
+[![DSCN1152](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1152.jpg)](https://burakpehlivan.org/1217/turk-ukrayna-otomotiv-forumu-kievde-gerceklestirildi/dscn1152/)

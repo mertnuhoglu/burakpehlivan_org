@@ -6,7 +6,7 @@ tags: ["Ekonomi", "ekonomi", "IMF Ukrayna Temsilcisi", "Jerome Vacher", "TUİD (
 type: post
 ---
 
-![dsc_6165](http://burakpehlivan.org/wp-content/uploads/2016/12/DSC_6165.jpg)
+![dsc_6165](https://burakpehlivan.org/wp-content/uploads/2016/12/DSC_6165.jpg)
 
 
 Yılın son günleri ve gelen yılın başlarında, Uluslararası Türk Ukrayna İşadamları Derneği(TUİD)’e Ukrayna ekonomisi hakkında uzman isimleri davet ederek hem yılın ekonomik bir değerlendirmesini yapıyor hem de gelecek yıla ilişkin beklentileri tartışıyoruz. Bu durum son beş yıldır adeta bir gelenek haline geldi. Bu çerçevede geçmiş yıllarda Avrupa İmar ve Kalkınma Bankası(EBRD) ve Dünya Bankası başta olmak üzere uluslararası finans kurumlarından, ülkede faaliyet gösteren yabancı bankalar ve denetim firmalarından, Ukrayna devlet kurumlarından ve büyükelçiliğimizden konuklarımız oldu. IMF Ukrayna daimi temsilcisi Jerome Vacher’in de ziyareti de bu kapsamdaydı. Ancak bu ziyareti birkaç nedenle tarihi bir ziyaret olarak tanımlamak mümkün. 
@@ -82,6 +82,6 @@ IMF Ukrayna temsilcisi Jerome Vacher, toplantı esnasında Ukrayna’daki Türk 
 **Burak PEHLİVAN**
 
 
-   ![dsc_5916](http://burakpehlivan.org/wp-content/uploads/2016/12/DSC_5916.jpg)  ![dsc_5947](http://burakpehlivan.org/wp-content/uploads/2016/12/DSC_5947.jpg)    ![dsc_5988](http://burakpehlivan.org/wp-content/uploads/2016/12/DSC_5988.jpg)
+   ![dsc_5916](https://burakpehlivan.org/wp-content/uploads/2016/12/DSC_5916.jpg)  ![dsc_5947](https://burakpehlivan.org/wp-content/uploads/2016/12/DSC_5947.jpg)    ![dsc_5988](https://burakpehlivan.org/wp-content/uploads/2016/12/DSC_5988.jpg)
 
-![dsc_5992](http://burakpehlivan.org/wp-content/uploads/2016/12/DSC_5992.jpg)   ![dsc_6058](http://burakpehlivan.org/wp-content/uploads/2016/12/DSC_6058.jpg)    ![dsc_6134](http://burakpehlivan.org/wp-content/uploads/2016/12/DSC_6134.jpg)  ![dsc_6165](http://burakpehlivan.org/wp-content/uploads/2016/12/DSC_6165.jpg)
+![dsc_5992](https://burakpehlivan.org/wp-content/uploads/2016/12/DSC_5992.jpg)   ![dsc_6058](https://burakpehlivan.org/wp-content/uploads/2016/12/DSC_6058.jpg)    ![dsc_6134](https://burakpehlivan.org/wp-content/uploads/2016/12/DSC_6134.jpg)  ![dsc_6165](https://burakpehlivan.org/wp-content/uploads/2016/12/DSC_6165.jpg)

@@ -6,7 +6,7 @@ tags: ["Brian Bonner", "Cem Murat Aytaç", "iftar", "Peter Dickinson", "Ramadan 
 type: post
 ---
 
-[![kyiv-post-ramadan](http://burakpehlivan.org/wp-content/uploads/2015/07/kyiv-post-ramadan.png)](http://burakpehlivan.org/wp-content/uploads/2015/07/kyiv-post-ramadan.png)
+[![kyiv-post-ramadan](https://burakpehlivan.org/wp-content/uploads/2015/07/kyiv-post-ramadan.png)](https://burakpehlivan.org/wp-content/uploads/2015/07/kyiv-post-ramadan.png)
 The traditional Ramazan dinner of the International Turkish Ukrainian Businessmen Association (TUID) was conducted in Kyiv  with the participation of the Ambassador of the Turkish Republic in Ukraine HE Yönet Can Tezel and over 200 guests.
 
 The event was sponsor by Colin’s, one of the top international clothing retail companies, operating 80 stores and employing over 1,000 employees in Ukraine.
@@ -19,13 +19,13 @@ The Ambassador of the Turkish Republic in Ukraine HE Yönet Can Tezel said that 
 
 Dinner lasted until late evening in Kyiv Mangal Restaurant.
 
-\[caption id="attachment\_3465" align="alignnone" width="500"\][![IMG_2580](http://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2580.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2580.jpg) TUID President Cem Murat Aytaç together with Turkish Ambassador to Ukraine HE Yönet Can Tezel, Commercial Attache Belkıs Gürsel Güleç and Tourism and Culture Attache Berat Yıldız\[/caption\]
+\[caption id="attachment\_3465" align="alignnone" width="500"\][![IMG_2580](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2580.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2580.jpg) TUID President Cem Murat Aytaç together with Turkish Ambassador to Ukraine HE Yönet Can Tezel, Commercial Attache Belkıs Gürsel Güleç and Tourism and Culture Attache Berat Yıldız\[/caption\]
 
-\[caption id="attachment\_3462" align="alignnone" width="500"\]![2015-07-08 09-21-43 Screenshot](http://burakpehlivan.org/wp-content/uploads/2015/07/2015-07-08-09-21-43-Screenshot-1024x575.png) TUID President Cem Murat Aytaç makes his welcome speech\[/caption\]
+\[caption id="attachment\_3462" align="alignnone" width="500"\]![2015-07-08 09-21-43 Screenshot](https://burakpehlivan.org/wp-content/uploads/2015/07/2015-07-08-09-21-43-Screenshot-1024x575.png) TUID President Cem Murat Aytaç makes his welcome speech\[/caption\]
 
-\[caption id="attachment\_3466" align="alignnone" width="500"\]![2015-07-08 09-16-10 Screenshot](http://burakpehlivan.org/wp-content/uploads/2015/07/2015-07-08-09-16-10-Screenshot-1024x575.png) TUID Vice President Burak Pehlivan greets the guests\[/caption\]
+\[caption id="attachment\_3466" align="alignnone" width="500"\]![2015-07-08 09-16-10 Screenshot](https://burakpehlivan.org/wp-content/uploads/2015/07/2015-07-08-09-16-10-Screenshot-1024x575.png) TUID Vice President Burak Pehlivan greets the guests\[/caption\]
 
-\[caption id="attachment\_3464" align="alignnone" width="500"\][![IMG_2551](http://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2551.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2551.jpg) Business Ukraine's chief editor Peter Dickinson with Colin's management team\[/caption\]
+\[caption id="attachment\_3464" align="alignnone" width="500"\][![IMG_2551](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2551.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2551.jpg) Business Ukraine's chief editor Peter Dickinson with Colin's management team\[/caption\]
 
-\[caption id="attachment\_3463" align="alignnone" width="500"\][![IMG_2591](http://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2591.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2591.jpg) Kyiv Post's Brian Bonner and Alyona Nevmerzhytska\[/caption\]
+\[caption id="attachment\_3463" align="alignnone" width="500"\][![IMG_2591](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2591.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2591.jpg) Kyiv Post's Brian Bonner and Alyona Nevmerzhytska\[/caption\]
 

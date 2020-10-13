@@ -6,7 +6,7 @@ tags: ["aui", "DWK", "German Business in Ukraine", "Giuseppe Masci", "Hilmar Enk
 type: post
 ---
 
-[![kyivpost article](http://burakpehlivan.org/wp-content/uploads/2013/03/kyivpost-article.jpg)](http://burakpehlivan.org/1296/turkish-german-and-italian-business-dinner-in-the-ukrainian-media/kyivpost-article/)
+[![kyivpost article](https://burakpehlivan.org/wp-content/uploads/2013/03/kyivpost-article.jpg)](https://burakpehlivan.org/1296/turkish-german-and-italian-business-dinner-in-the-ukrainian-media/kyivpost-article/)
 
 Turkish, German and Italian Businessmen’s joint meeting which was taken place in Sorento Restaurant which is one of the most prestigious Italian restaurants in Kiev was published in English speaking media of Ukraine. Kyiv Post which has been distributed 40 thousands of copies every week and What’s On magazine mentioned very widely about this dinner which had gathered more than 80 businessmen from Turkish (TUID), German (DWK) and Italian (AIU) associations.
 
@@ -55,4 +55,4 @@ He finished his speech by highlighting that he would be glad to attend the next 
 **The President of Georgetown Club of Ukraine Mr. Tamerlan Vahabov** also attended the meeting. After the dinner , businessmen from the Italian,Turkish and German associations discussed their plans and the possibilities offered by trilateral cooperation between the countries.
 
 
- [![whats on1](http://burakpehlivan.org/wp-content/uploads/2013/03/whats-on1.jpg)](http://burakpehlivan.org/1296/turkish-german-and-italian-business-dinner-in-the-ukrainian-media/whats-on1/)
+ [![whats on1](https://burakpehlivan.org/wp-content/uploads/2013/03/whats-on1.jpg)](https://burakpehlivan.org/1296/turkish-german-and-italian-business-dinner-in-the-ukrainian-media/whats-on1/)

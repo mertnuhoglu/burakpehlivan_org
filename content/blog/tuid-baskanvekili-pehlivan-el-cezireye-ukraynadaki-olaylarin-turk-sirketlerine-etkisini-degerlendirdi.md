@@ -6,7 +6,7 @@ tags: ["Deniz Berktay", "Ekonomi", "El Cezire Türkçe", "Euromaidan", "Genel", 
 type: post
 ---
 
-[![4ukrdef1](http://burakpehlivan.org/wp-content/uploads/2014/02/4ukrdef1.png)](http://burakpehlivan.org/wp-content/uploads/2014/02/4ukrdef1.png)
+[![4ukrdef1](https://burakpehlivan.org/wp-content/uploads/2014/02/4ukrdef1.png)](https://burakpehlivan.org/wp-content/uploads/2014/02/4ukrdef1.png)
 
 Ukrayna’da 700’den fazla Türk şirketi var. Burada Türk sermayesi, üçüncü ülkelerden gelen yatırımlarla birlikte 2 milyar doları buluyor. Ukrayna 2008 yılındaki küresel ekonomik krizden en fazla etkilenen ülkelerden biri olmuştu. Kriz inşaat sektöründekiler başta olmak üzere birçok Türk şirketinin ağır zararlara uğramasına, bazılarının da Ukrayna’dan ayrılmasına neden olmuştu. Ukrayna’daki yönetim karşıtı protestoların Türk yatırımcıya etkisini Türk Ukrayna İşadamları Derneği Başkanvekili Burak Pehlivan, El Cezire Türkçe muhabiri Deniz Berktay’a değerlendirdi.
 
@@ -15,7 +15,7 @@ Ekonomik faaliyet yavaşladı'
 ----------------------------
 
 
-[![Вкладчики Родовида пикетируют Нацбанк](http://burakpehlivan.org/wp-content/uploads/2014/02/tuid-baskanvekili-pehlivan-el-cezireye-ukraynadaki-olaylarin-turk-sirketlerine-etkisini-degerlendirdi2.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/tuid-baskanvekili-pehlivan-el-cezireye-ukraynadaki-olaylarin-turk-sirketlerine-etkisini-degerlendirdi2.jpg) TUİD Başkan Vekili Burak Pehlivan, Ukrayna’daki Türk şirketlerinin perakende, inşaat, iletişim ve lojistik gibi alanlarda son derece etkili olduklarını belirtiyor. Ukrayna ekonomisinin son beş çeyrek boyunca büyüme göstermediğini, buna karşılık 2013 yılının son çeyreğinde yüzde 3,7’lik büyüme oranını yakaladığını kaydediyor. Pehlivan, diğer taraftan Kasım sonunda patlak veren siyasi olayların ekonomik faaliyeti yavaşlattığını söylüyor. Bu olayların Ukrayna’nın yatırım notunu kırdığını belirten Burak Pehlivan, bunun sonucunda Ukrayna’da paraya erişim maliyetinin arttığını ifade ediyor.
+[![Вкладчики Родовида пикетируют Нацбанк](https://burakpehlivan.org/wp-content/uploads/2014/02/tuid-baskanvekili-pehlivan-el-cezireye-ukraynadaki-olaylarin-turk-sirketlerine-etkisini-degerlendirdi2.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/tuid-baskanvekili-pehlivan-el-cezireye-ukraynadaki-olaylarin-turk-sirketlerine-etkisini-degerlendirdi2.jpg) TUİD Başkan Vekili Burak Pehlivan, Ukrayna’daki Türk şirketlerinin perakende, inşaat, iletişim ve lojistik gibi alanlarda son derece etkili olduklarını belirtiyor. Ukrayna ekonomisinin son beş çeyrek boyunca büyüme göstermediğini, buna karşılık 2013 yılının son çeyreğinde yüzde 3,7’lik büyüme oranını yakaladığını kaydediyor. Pehlivan, diğer taraftan Kasım sonunda patlak veren siyasi olayların ekonomik faaliyeti yavaşlattığını söylüyor. Bu olayların Ukrayna’nın yatırım notunu kırdığını belirten Burak Pehlivan, bunun sonucunda Ukrayna’da paraya erişim maliyetinin arttığını ifade ediyor.
 
 
 Ukrayna’nın her şeye rağmen geleceği parlaktır

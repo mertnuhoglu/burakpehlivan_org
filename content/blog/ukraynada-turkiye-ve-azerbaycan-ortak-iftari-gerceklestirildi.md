@@ -6,7 +6,7 @@ tags: ["Ali Aliyev", "Azerbaycan", "Dinçer Sayıcı", "Eynulla Medetli", "Hayda
 type: post
 ---
 
-[![DSC_7018](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_70181.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_70181.jpg)
+[![DSC_7018](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_70181.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_70181.jpg)
 
 
 
@@ -41,17 +41,17 @@ kaynak: tuid.org.ua
 
 
 
-[![DSC_6929](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_69291.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_69291.jpg)
+[![DSC_6929](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_69291.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_69291.jpg)
 
 
 
 
- [![DSC_6926](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6926.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6926.jpg)
+ [![DSC_6926](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6926.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6926.jpg)
 
 
 
 
-![DSC_6922](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6922.jpg)
+![DSC_6922](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6922.jpg)
 
 
 
@@ -59,19 +59,19 @@ kaynak: tuid.org.ua
 
 
 
-[![DSC_6875_19-11-49](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6875_19-11-49.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6875_19-11-49.jpg) [![DSC_6880](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6880.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6880.jpg)
+[![DSC_6875_19-11-49](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6875_19-11-49.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6875_19-11-49.jpg) [![DSC_6880](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6880.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6880.jpg)
 
 
 
 
-![DSC_6869](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6869.jpg)
+![DSC_6869](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6869.jpg)
 
 
 
 
-[![DSC_6886](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6886.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6886.jpg) [![DSC_6890](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6890.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6890.jpg) [![DSC_6893](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6893.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6893.jpg) [![DSC_6899](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6899.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6899.jpg) [![DSC_6900](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6900.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6900.jpg) [![DSC_6901](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6901.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6901.jpg)[![DSC_6938](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6938.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6938.jpg) [![DSC_6945](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6945.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6945.jpg) [![DSC_6951](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6951.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6951.jpg)[![DSC_6974](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6974.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6974.jpg)[![DSC_6981](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6981.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6981.jpg) [![DSC_6990](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6990.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6990.jpg)      [![DSC_7052](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7052.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7052.jpg)
+[![DSC_6886](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6886.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6886.jpg) [![DSC_6890](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6890.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6890.jpg) [![DSC_6893](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6893.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6893.jpg) [![DSC_6899](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6899.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6899.jpg) [![DSC_6900](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6900.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6900.jpg) [![DSC_6901](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6901.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6901.jpg)[![DSC_6938](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6938.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6938.jpg) [![DSC_6945](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6945.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6945.jpg) [![DSC_6951](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6951.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6951.jpg)[![DSC_6974](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6974.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6974.jpg)[![DSC_6981](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6981.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6981.jpg) [![DSC_6990](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6990.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_6990.jpg)      [![DSC_7052](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7052.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7052.jpg)
 
 
 
 
-[![DSC_7006](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_70061.jpg)![DSC_7059](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7059.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7059.jpg) [![DSC_7060](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7060.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7060.jpg) [![DSC_7083_19-12-33](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7083_19-12-33.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7083_19-12-33.jpg) [![DSC_7097_19-09-32](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7097_19-09-32.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7097_19-09-32.jpg) [![DSC_7098](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7098.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7098.jpg) [![DSC_7105](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7105.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7105.jpg)  [![DSC_7115](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7115.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7115.jpg) [![DSC_7118](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7118.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7118.jpg) [![DSC_7122](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7122.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7122.jpg) [![DSC_7137](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7137.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7137.jpg)
+[![DSC_7006](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_70061.jpg)![DSC_7059](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7059.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7059.jpg) [![DSC_7060](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7060.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7060.jpg) [![DSC_7083_19-12-33](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7083_19-12-33.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7083_19-12-33.jpg) [![DSC_7097_19-09-32](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7097_19-09-32.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7097_19-09-32.jpg) [![DSC_7098](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7098.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7098.jpg) [![DSC_7105](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7105.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7105.jpg)  [![DSC_7115](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7115.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7115.jpg) [![DSC_7118](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7118.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7118.jpg) [![DSC_7122](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7122.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7122.jpg) [![DSC_7137](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7137.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7137.jpg)

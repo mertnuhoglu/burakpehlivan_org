@@ -6,7 +6,7 @@ tags: ["TUİD (Türk Ukrayna İşadamları Derneği)"]
 type: post
 ---
 
- ![](http://burakpehlivan.org/wp-content/uploads/2017/03/IMG_3787.jpg)
+ ![](https://burakpehlivan.org/wp-content/uploads/2017/03/IMG_3787.jpg)
 
 
 
@@ -21,7 +21,7 @@ Forum hazırlıkları çerçevesinde Kiev’e gelen ve birkaç kez bir araya gel
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/03/Screen-Shot-2017-03-21-at-20.44.22.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/03/Screen-Shot-2017-03-21-at-20.44.22.png)
 
 
 
@@ -36,12 +36,12 @@ Peki nedir bu Türkonfed? Türkonfed, Türkiye’nin gönüllülük esasına gö
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/03/Screen-Shot-2017-03-21-at-20.50.16.png)Ukrayna Türk iş dünyasının, TUİD’in bugüne kadar yaptıkları ortada. Böyle bir kurumda temsil edilmek hem de Türkonfed International’in uzun ve zahmetli kuruluş sürecinde, kurucu üye olarak bulunmak, TUİD’in yaptığı faaliyetlerin, Ukrayna dışında da ses getirdiğinin ve kurumun önemli bir saygınlığa ulaştığının işaretlerinden biri. Bugüne kadar yüzlerce yazı yazdım ama sanırım makale olarak sivil toplum örgütleri hakkında kaleme aldıklarım birkaçı geçmez. Ancak böyle tarihi bir gelişme olunca ve Türkonfed’in resmi yayın organı Türkonfedbiz bu yazı için bir de yer ayırınca tüm bu süreci yazıya dökmek istedim.
+![](https://burakpehlivan.org/wp-content/uploads/2017/03/Screen-Shot-2017-03-21-at-20.50.16.png)Ukrayna Türk iş dünyasının, TUİD’in bugüne kadar yaptıkları ortada. Böyle bir kurumda temsil edilmek hem de Türkonfed International’in uzun ve zahmetli kuruluş sürecinde, kurucu üye olarak bulunmak, TUİD’in yaptığı faaliyetlerin, Ukrayna dışında da ses getirdiğinin ve kurumun önemli bir saygınlığa ulaştığının işaretlerinden biri. Bugüne kadar yüzlerce yazı yazdım ama sanırım makale olarak sivil toplum örgütleri hakkında kaleme aldıklarım birkaçı geçmez. Ancak böyle tarihi bir gelişme olunca ve Türkonfed’in resmi yayın organı Türkonfedbiz bu yazı için bir de yer ayırınca tüm bu süreci yazıya dökmek istedim.
 
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/03/Screen-Shot-2017-03-21-at-20.50.10.png)Türkonfed International kısa sürede Ukrayna’daki Türk iş dünyasına katkısını gösterdi. Önce Ukrayna Ticaret ve Sanayi Odası’nın tarihte ilk kez oluşturduğu Türkiye temsilciliği görevine, Ukrayna’daki tüm şehir sanayi ve ticaret odalarının oybirliğiyle Türkonfed başkan yardımcısı Hasan Kamil Hayali’nin seçilmesi, Ukrayna ve Ukrayna’daki Türk iş dünyası için Türkiye’de büyük bir lobi gücü oluşturdu. Sonrasında ise Türkonfed başkanı Tarkan Kadooğlu’nun, Ukrayna’da düzenlenen en önemli ekonomi konferanslarının başında gelen ‘Kyiv Post yeni pazarlara ulaşım’ konferansının açılış konuşmasında Türkonfed’in tüm kurumları ve olanaklarıyla TUİD üzerinden Türkiye ve Ukrayna iş dünyaları arasında bir köprü oluşturacağını, salonda bulunan onlarca büyükelçinin, ülkenin önde gelen firmalarının sahipleri ve üst düzey yöneticilerinin önünde dile getirmesi hiç kuşkusuz Ukrayna’da elimizi daha da güçlendirdi. Beşeri, kişisel ilişkiler, önemli ama bunlar Ukrayna Ticaret ve Sanayi Odası Türkiye resmi temsilciliği ve Türkonfed International gibi mekanizmalarla kurumsal hale dönüştüğünde kalıcı oluyor.
+![](https://burakpehlivan.org/wp-content/uploads/2017/03/Screen-Shot-2017-03-21-at-20.50.10.png)Türkonfed International kısa sürede Ukrayna’daki Türk iş dünyasına katkısını gösterdi. Önce Ukrayna Ticaret ve Sanayi Odası’nın tarihte ilk kez oluşturduğu Türkiye temsilciliği görevine, Ukrayna’daki tüm şehir sanayi ve ticaret odalarının oybirliğiyle Türkonfed başkan yardımcısı Hasan Kamil Hayali’nin seçilmesi, Ukrayna ve Ukrayna’daki Türk iş dünyası için Türkiye’de büyük bir lobi gücü oluşturdu. Sonrasında ise Türkonfed başkanı Tarkan Kadooğlu’nun, Ukrayna’da düzenlenen en önemli ekonomi konferanslarının başında gelen ‘Kyiv Post yeni pazarlara ulaşım’ konferansının açılış konuşmasında Türkonfed’in tüm kurumları ve olanaklarıyla TUİD üzerinden Türkiye ve Ukrayna iş dünyaları arasında bir köprü oluşturacağını, salonda bulunan onlarca büyükelçinin, ülkenin önde gelen firmalarının sahipleri ve üst düzey yöneticilerinin önünde dile getirmesi hiç kuşkusuz Ukrayna’da elimizi daha da güçlendirdi. Beşeri, kişisel ilişkiler, önemli ama bunlar Ukrayna Ticaret ve Sanayi Odası Türkiye resmi temsilciliği ve Türkonfed International gibi mekanizmalarla kurumsal hale dönüştüğünde kalıcı oluyor.
 
 
 

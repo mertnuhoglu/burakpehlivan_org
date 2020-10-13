@@ -6,7 +6,7 @@ tags: ["Ali Sakallıoğlu", "Atina Ticaret Başmüşaviri", "Aziz Şimşek", "Do
 type: post
 ---
 
-[![](http://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-turk-yatirimcilari-bekliyor1.jpg "yunanistan-turk-yatirimcilari-bekliyor")](http://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-turk-yatirimcilari-bekliyor1.jpg)Türk Ukrayna İşadamları Derneği’nin Yunanistan ziyareti kapsamında, TUİD Başkanvekili Burak Pehlivan ve yönetim kurulu üyesi Aziz Şimşek  ilk olarak Türkiye Cumnhuriyeti Atina Ticaret Başmüşvariliği'ni daha sonra ise Yunanistan Sanayiciler Birliği(SEV) 'i ziyaret etti. Atina Ticaret Başmüşaviri Ali Sakallıoğlu’nun makamında yapılan ilk görüşmede,  Atina Ticaret Müşaviri İsmail Tulukçu da hazır bulundu.
+[![](https://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-turk-yatirimcilari-bekliyor1.jpg "yunanistan-turk-yatirimcilari-bekliyor")](https://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-turk-yatirimcilari-bekliyor1.jpg)Türk Ukrayna İşadamları Derneği’nin Yunanistan ziyareti kapsamında, TUİD Başkanvekili Burak Pehlivan ve yönetim kurulu üyesi Aziz Şimşek  ilk olarak Türkiye Cumnhuriyeti Atina Ticaret Başmüşvariliği'ni daha sonra ise Yunanistan Sanayiciler Birliği(SEV) 'i ziyaret etti. Atina Ticaret Başmüşaviri Ali Sakallıoğlu’nun makamında yapılan ilk görüşmede,  Atina Ticaret Müşaviri İsmail Tulukçu da hazır bulundu.
 
 Ziyaretin ana gündem maddesi TUİD’in öncülüğünde gelişen Doğu Avrupa Türk İşadamları Dernekleri Birliği projesi DAİB oldu. Proje ve proje ile ilgili bugüne kadar yapılan çalışmalar hakkında Atina ticaret başmüşavirini bir sunum ile bilgilendiren TUİD başkanvekili Burak Pehlivan, sunumunda ayrıca Ukrayna’daki son ekonomik duruma ve Ukrayna’da Türk sermayesine de değindi. Pehlivan, “Ukrayna’da 700 civarında Türk sermayeli firma faaliyet gösteriyor, direk ve üçüncü ülkelerden gönderilen sermaye ile birlikte ülkedeki Türk yatırımları 1,5 milyar $’ın üzerinde” dedi. TUİD Başkanvekli, Yunanistan’ın önemli bir ülke olduğunu, aynı Ukrayna’da olduğu gibi ülke ihracatında Türkiye’nin 2. sırada yer aldığını belirterek, Yunanistan’daki ve Ukrayna’daki Türk işadamları oluşumları arasındaki iletişimin gelişmesinin olumlu etkilerinin mutlaka görüleceğini belirterek sözlerini tamaladı.
 
@@ -25,6 +25,6 @@ Ziyaret iki kurum arasında bir işbirliği protokolü düzenlenmesiyle sona erd
 
 ![](https://lh5.googleusercontent.com/-qIjf_GV__Jc/UMjip-Cs5gI/AAAAAAAADKo/-a4852B4HW8/s616/P1000003.JPG)
 
-[![](http://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-turk-yatirimcilari-bekliyor.jpg "yunanistan-turk-yatirimcilari-bekliyor")](http://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-turk-yatirimcilari-bekliyor.jpg)
+[![](https://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-turk-yatirimcilari-bekliyor.jpg "yunanistan-turk-yatirimcilari-bekliyor")](https://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-turk-yatirimcilari-bekliyor.jpg)
 
 ![](https://lh5.googleusercontent.com/-D1ReC4BOa88/UMjis-j4FOI/AAAAAAAADLI/FYw0ZM5L2_I/s616/P1000015.JPG)

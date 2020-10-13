@@ -6,7 +6,7 @@ tags: ["50 Gün Bayramı", "Din", "Dini Gün", "Kiev", "Kiev", "Kültür ve Din"
 type: post
 ---
 
-[![58155856](http://burakpehlivan.org/wp-content/uploads/2015/05/58155856.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/58155856.jpg)
+[![58155856](https://burakpehlivan.org/wp-content/uploads/2015/05/58155856.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/58155856.jpg)
 
 Ukrayna tatiller konusunda cömert bir ülkedir. Gerek resmi bayramlar, gerekse dini bayramların çokluğunun yanı sıra, eğer bayram haftasonuna geliyorsa, takip eden pazartesi de bayram ilan edilir. Ekonomisini büyütmeye, bunun için de daha çok çalışmaya ve üretmeye ihtiyacı olan Ukrayna'nın bu uygulamalarını eleştirmek mümkün ancak bu fazla sayıda tatil, ülke içi ve dışı turizme de şüphesiz hareket getiriyor. Bugün 50 gün bayramı ve yarın Ukrayna'da, Rusya'nın aksine resmi tatil. Kiev'in sokakları boş. Çiçeklerini açmış kestane ağaçlarının altında  sabah yürüyüşünü yaparken, yollardan geçen arabaların, kaldırımları arşınlayan yayaların  azlığı dikkat çekiyor. Belli ki bu üç günlük tatili fırsat bilen Kievliler ekonomik krize rağmen Batı Ukrayna'ya, Odessa'nın serin sahillerine, ya da yurtdışındaki tatil destinasyonlarına  akın etmişler.
 

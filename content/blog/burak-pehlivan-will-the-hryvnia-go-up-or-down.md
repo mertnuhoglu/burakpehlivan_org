@@ -6,7 +6,7 @@ tags: ["article", "economy", "Ekonomi", "English", "English Articles", "Kyiv Pos
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/07/29136910312_a02dbadf24_k.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/07/29136910312_a02dbadf24_k.jpg)
 
 The hryvnia, the national currency of Ukraine, has been exposed to two great devaluations against the dollar during the last 10 years. Before the first devaluation, one dollar used to be equal to five hryvnia according to the exchange rates. Due to the global economic crises in 2008, the hryvnia has lost value by 50 percent against the greenback and the exchange rate has first soared to 10 for a short time and subsequently, during approximately five years, the rate has been fixed at 8.
 

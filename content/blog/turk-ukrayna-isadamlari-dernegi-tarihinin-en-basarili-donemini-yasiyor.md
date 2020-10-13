@@ -6,7 +6,7 @@ tags: ["ali bulut", "Atlasglobal", "Halil Zeybek", "Haydar Koçak", "herson", "M
 type: post
 ---
 
-[![FullSizeRender (7)](http://burakpehlivan.org/wp-content/uploads/2016/01/FullSizeRender-7.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/01/FullSizeRender-7.jpg)
+[![FullSizeRender (7)](https://burakpehlivan.org/wp-content/uploads/2016/01/FullSizeRender-7.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/01/FullSizeRender-7.jpg)
 Türkiye Cumhuriyeti Kiev Ticaret müşaviri Haydar Koçak, Ukrayna’nın sanayi şehri Zaporoje’ye bir çalışma ziyareti gerçekleştirerek, burada şehirdeki Türk işadamlarıyla bir araya geldi. Koçak’a ziyaretinde Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) başkanvekili Burak Pehlivan ile TUİD Herson temsilcisi Ali Bulut da eşlik etti.
 
 Zaporoje’deki en büyük Türk yatırımlarından olan Ukrest’in genel merkezinde gerçekleşen toplantıda Haydar Koçak, Ukrayna Türkiye ekonomik ilişkileri hakkında kısa bir bilgi verdi. Koçak, Avrupa Birliği ile Ukrayna arasında yürürlüğe giren Serbest Ticaret Antlaşmasının(STA) olası etkilerini değerlendirirken, Türkiye ve Ukrayna arasında imzalanması artık son aşamaya gelen STA’nın iki ülke ticaretine getireceği faydaları da işadamlarıyla paylaştı. Koçak, Ukrayna’da ciddi ekonomik sıkıntıların yaşandığını ancak Ukrayna yasaları dâhilinde işini düzgün yapan Türk firmalarının her zaman yanında olduklarını belirterek, Türk işadamlarına güven verdi.

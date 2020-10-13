@@ -6,7 +6,7 @@ tags: ["Cem Murat Aytaç", "cernobil", "Farmasi", "Kiev’de", "malatya pazarı"
 type: post
 ---
 
-![DSCN7830](http://burakpehlivan.org/wp-content/uploads/2014/04/DSCN7830.jpg)
+![DSCN7830](https://burakpehlivan.org/wp-content/uploads/2014/04/DSCN7830.jpg)
 
 İnsanlık tarihinin en büyük çevre felaketi olan Çernobil Nükleer Kazası’nın 28. Yıldönümünde Türk Ukrayna İşadamları Derneği(TUİD) ve Çernobil Mağduru Çocukları Koruma Vakfı ortak bir anma etkinliği gerçekleştirdi. Etkinliğe çoğu yetim Çernobil Nükleer kazasının günümüze kadar uzanan etkilerinden muzdarip 60 çocuk katıldı.
 Organizasyon, Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel’in onurlandırdığı ve Ukrayna’daki Türk iş dünyasının geniş katılımıyla Kiev’de yeni açılan Famous restoranda başlarken, daha sonra çocuklar TUİD’in organizasyonu ile Kiev şehir turu ve Yunus Parkı gezisi yaptılar.

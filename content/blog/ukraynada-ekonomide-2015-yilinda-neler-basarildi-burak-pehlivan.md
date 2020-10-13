@@ -6,13 +6,13 @@ tags: ["2016 bütçesi", "2016’da büyüme", "Ekonomi", "imf", "Ukrayna", "Ukr
 type: post
 ---
 
-[![987897](http://burakpehlivan.org/wp-content/uploads/2016/01/987897.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/01/987897.jpg)
+[![987897](https://burakpehlivan.org/wp-content/uploads/2016/01/987897.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/01/987897.jpg)
 
 Ukrayna’da 2015 yılının son günleri yaşanırken, hükümet tarafından meclise sevk edilen, IMF ve Avrupa Birliği’nin desteklediği bütçe açığının milli gelire oranının %3,7’nin altında tutulacağı  bütçe tasarısına karşı, radikal vergi indirimleri ve popülist harcamalarla bütçe açığını 2016 yılında milli gelirin %6’sının üzerine taşıyacak alternatif bütçe tasarısı mecliste aralarında iktidar partisi milletvekillerinin de yer aldığı çok sayıda taraftar bulmuştu. Bu milletvekilleri, ülkenin IMF çıpası olmadan da artık kendi ayakları üzerinde durabileceği varsayımından hareketle, alternatif bütçe tasarısını destekliyordu. Son bir yılda ekonomi alanındaki kazanımların kaybedilme tehlikesiyle karşı karşıyaydık zira IMF’in 1.7 milyar dolarlık yeni kredi diliminin yanı sıra, başta AB olmak üzere Batı bloğunun yeni 2.2 milyar dolarlık mali desteğinin önünün açılması ve istikrar programının devamı ancak hükümetin bütçe tasarısının kabulüyle mümkündü.
 
 Sabaha karşı 4’de de olsa 2016 bütçesi meclisten geçti. Hükümet, ülkenin 2016 yılı gelir ve giderleri üzerinde yaptığı taahhütle, reformlar noktasında kararlılığını göstermiş oldu Bütçeye paralel ise, Ukrayna’da iş yapmayı çok daha kolaylaştıracak yeni vergi kanunu kabul edildi. Peki geçtiğimiz yıl Ukrayna’da bu iki gelişmeyle birlikte ekonomi alanında neler başarıldı? , 2016’da bizi ne bekliyor? Dilerseniz önce bütçe ve yeni vergi kanunundan başlayarak 2015’in genel bir muhasebesini yapalım.
 
-[![133793](http://burakpehlivan.org/wp-content/uploads/2016/01/133793.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/01/133793.jpg)
+[![133793](https://burakpehlivan.org/wp-content/uploads/2016/01/133793.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/01/133793.jpg)
 
 
 Ukrayna’da, 2016’da büyüme %2, enflasyon %12 olarak öngörülüyor
@@ -23,7 +23,7 @@ Ukrayna’da, 2016’da büyüme %2, enflasyon %12 olarak öngörülüyor
 
 Bütçede ana gelir kalemini en başta tabii ki vergi gelirleri oluşturuyor. Yeni vergi kanunuyla bazı vergiler tümden iptal edilirken, bazı vergilerin oranları ise düşürüldü. İptal edilen vergiler arasında ürün gruplarına göre %5 veya %10 oranında uygulanan ve 2014 yılında ülkenin dramatik bir biçimde bozulan ödemeler dengesine ilaç olması için getirilen ek gümrük vergileri yer alıyor. 1 Ocak 2016 tarihinden itibaren IMF ve AB ile varılan mutabakat çerçevesinde bu vergiler tamamen kaldırıldı.
 
-[![105595](http://burakpehlivan.org/wp-content/uploads/2016/01/105595.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/01/105595.jpg)
+[![105595](https://burakpehlivan.org/wp-content/uploads/2016/01/105595.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/01/105595.jpg)
 
 
 Yeni vergi kanunuyla brüt ücret üzerindeki yük %59’dan, %22’ye çekilirken, gelir vergisi 18, KDV ise %20 olarak belirlendi
@@ -36,7 +36,7 @@ Yeni bütçeyle birlikte zaten çok düşük oranda vergilendirilen alkollü iç
 
 Düşen vergi oranları ve basitleştirilen vergi prosedürleri, yolsuzluk algısının yoğun, devletin vergileri doğru amaçlarla kullandığı konusunda yoğun şüpheleri olan toplumlarda otomatikman verginin tabana yayılmasını sağlayamaz, ayıca unutmamak gerek ki Sovyetler Birliği döneminde bu topraklarda insanlar vergi ödeme alışkanlığına sahip değildi. Bunun için vergisini doğru ödeyen kurum ve kişiler rahatsız edilmeden adil bir biçimde vergi denetimleri yapılması ve çeşitli kampanyalarla toplumda vergi ödeme bilincinin oluşturulması hedeflenecek. Düşen vergi oranları ve iptal edilen vergilerden kaynaklanan gelir kayıpları ise daha çok firmanın gerçek ücretleri beyan etmesi, bazı tahminlere göre %50’yi bulan kayıt dışı ekonominin yapılacak denetimlerle kayıt içine çekilmesiyle aşılacak. Değişen vergi kanunuyla beraber, vergi idaresinde de reforma gidiliyor, bu çerçevede 2016 yılında, bu alanda 17.500 kişi işten çıkarılacak.
 
-[![008](http://burakpehlivan.org/wp-content/uploads/2016/01/008.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/01/008.jpg)
+[![008](https://burakpehlivan.org/wp-content/uploads/2016/01/008.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/01/008.jpg)
 
 
 Büyüme, özel sektör yatırımlarından ve yabancı sermayeden sağlanacak
@@ -47,7 +47,7 @@ Bütçede giderler bölümünde ise aslan payını emeklilik ve sosyal güvenlik
 
 Ukrayna’da, 2015 yılının son iki kazanımı olan vergi kanunu ve 2016 bütçesi bu şekilde. Diğer olumlu gelişmelere gelince. Hükümet, her ne kadar değişim konusunda yeterince hızlı hareket etmemekle eleştirilse de özellikle ekonomi alanında geçtiğimiz yıl birçok başarı sağlandığına ve yapısal reforma imza atıldığına tanıklık ettik. Mart ayında IMF ile 17 milyar dolarlık mali paket konusunda anlaşılırken, Batı ülke ve kurumlarından gelen mali destekle bu paket dört yıl için 40 milyar dolara çıkarıldı. %70 oranında devalüe olan Ukrayna yerel para birimi son altı ayda dolar karşısında istikrara kavuşturuldu, döviz rezervleri ise 5 milyar dolardan, 13,3 milyar dolara getirildi. İhracatın Rusya’ya bağımlığı %35’lerden, %12’lere çekilirken, kasım ayında, Rusya hariç kreditörlerle antlaşma sağlanarak devlet dış borçlarının 15 milyar dolarlık bölümünde yeniden yapılandırılmaya gidildi. Ekonomi ve tarım bakanlığı birçok lisans ve izni iptal ederken, iş yapma prosedürlerini kolaylaştırdılar. Ayrıca devlet alımlarının elektronik sisteme taşınması bu alanda yolsuzluğun engellenebilmesi için önemli bir adım oldu.
 
-[![____2426_650x410](http://burakpehlivan.org/wp-content/uploads/2016/01/2426_650x410.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/01/2426_650x410.jpg)
+[![____2426_650x410](https://burakpehlivan.org/wp-content/uploads/2016/01/2426_650x410.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/01/2426_650x410.jpg)
 
 
 Bankacılık sektöründe konsolidasyon sürüyor, tarımsal ihracat arttı, sanayi üretimine istikrar gelirken, yeniden büyüme sağlandı

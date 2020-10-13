@@ -6,7 +6,7 @@ tags: ["Arkas Ukrayna", "Arlogic Ukrayna", "ayhan akbaba", "Diane Arcas", "Ekono
 type: post
 ---
 
-![dsc_0304-768x509](http://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0304-768x509-1.jpg)
+![dsc_0304-768x509](https://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0304-768x509-1.jpg)
 
 
 
@@ -76,14 +76,14 @@ Karadeniz’in bölgede istikrarın sağlanması ve Karadeniz’e komşu ülkele
 
 
 
-![dsc_0179](http://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0179.jpg)    ![dsc_0196](http://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0196.jpg)
+![dsc_0179](https://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0179.jpg)    ![dsc_0196](https://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0196.jpg)
 
 
 
 
-![dsc_0226](http://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0226.jpg)
+![dsc_0226](https://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0226.jpg)
 
 
 
 
-  ![dsc_0229](http://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0229.jpg)    ![dsc_0277](http://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0277.jpg) ![dsc_0280](http://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0280.jpg) ![dsc_0282](http://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0282.jpg)
+  ![dsc_0229](https://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0229.jpg)    ![dsc_0277](https://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0277.jpg) ![dsc_0280](https://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0280.jpg) ![dsc_0282](https://burakpehlivan.org/wp-content/uploads/2016/11/DSC_0282.jpg)

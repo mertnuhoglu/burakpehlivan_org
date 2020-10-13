@@ -6,7 +6,7 @@ tags: ["Ali Aliyev", "ali bulut", "Eyüp Tever", "Fatih Aydın", "harun şirin",
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-16-at-22.58.44.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-16-at-22.58.44.png)
 
 
 Türkiye Büyük Millet Meclisi Başkanı İsmail Kahraman, Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) yönetim kurulu üyelerini meclisteki makamında kabul etti. TUİD heyetinde, yönetim kurulu başkanı Burak Pehlivan, TUİD başkanvekili ve Herson temsilcisi Ali Bulut, Batı Ukrayna Temsilcisi Selim Tever, TUİD yönetim kurulu üyesi ve Azerbaycan-Ukrayna Sanayici ve İşadamları Derneği başkanı Ali Aliyev, Lviv Temsilcisi Fatih Aydın, TUİD yönetim kurulu üyesi Harun Şirin, TUİD yönetim kurulu üyesi Onur İnşaat’ın yönetim kurulu başkanı Onur Çetinceviz ile Wood Industries yönetim kurulu başkanı Eyüp Tever yer aldı.
@@ -22,4 +22,4 @@ Türkiye Büyük Millet Meclisi Başkanı İsmail Kahraman görüşmenin sonunda
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-16-at-22.59.10.png) ![](http://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-16-at-22.59.01.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-16-at-22.59.10.png) ![](https://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-16-at-22.59.01.png)

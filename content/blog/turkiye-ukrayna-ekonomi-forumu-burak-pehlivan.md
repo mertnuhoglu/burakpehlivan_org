@@ -6,11 +6,11 @@ tags: ["ACC", "Amerika Birleşik Devletleri Uluslararası Kalkınma Ajansı", "A
 type: post
 ---
 
-[![DSCN05281](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN05281.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN05281.jpg)
+[![DSCN05281](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN05281.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN05281.jpg)
 
 Türkiye Cumhuriyeti Kiev Büyükelçiliği’nin koordinasyonunda, Ukrayna Dışişleri Bakanlığı, Amerika Birleşik Devletleri Uluslararası Kalkınma Ajansı(USAID) ve Amerika Ticaret Odası’nın(ACC) işbirliğinde, Türkiye’nin Kamu Özel Sektör İşbirliği alanındaki başarılı deneyimlerinin Ukrayna için pratik bir yol haritası olarak değerlendirilmesi amacıyla organize edilen ekonomi konferansında ben de konuşmacılardan biriydim. Türkiye Cumhuriyeti Ekonomi Bakanlığı, Türkiye Cumhuriyeti Kalkınma Bakanlığı, Devlet Havameydanları genel müdürlüğü gibi kuruluşlardan uzman isimlerin ve Türkiye’den özel sektör temsilcilerinin de yaptıkları sunumlarla katkıda bulundukları konferansta bir başka değerli katılımcı ise Ukrayna’nın en büyük yabancı yatırımcısı konumunda olan ve ülke ekonomisine bugüne kadar 5.1 miyar Euro’luk destek sağlayan Avrupa İmar ve Kalkınma Bankası’nın Ukrayna direktörü, kıdemli Türk bankacı Şevki Acuner’di. Orijinalini İngilizce olarak konferans katılımcılarıyla paylaştığım ve Türkiye’nin deneyimlerinin, Ukrayna için nasıl faydalı olabileceğini özetle anlatmaya çalıştığım konuşmamı makale haline getirerek sizlerle paylaşıyorum.
 
-[![DSCN0444](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0444.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0444.jpg)
+[![DSCN0444](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0444.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0444.jpg)
 
 
 Türkiye’nin adı, Amerikan Uluslararası Kalkınma Ajansı’nın çalışmalarında, Ukrayna için örnek ülke olarak ortaya çıkıyor
@@ -19,7 +19,7 @@ Türkiye’nin adı, Amerikan Uluslararası Kalkınma Ajansı’nın çalışmal
 
 Ukrayna’nın çok zor bir ekonomik ve siyasi dönemden geçtiği inkar edilemez bir gerçek. Ülke ekonomisini dönüştürmek, Avrupa ile entegre etme arayışında. Rekabetin artırılması, bankacılık altyapısının güçlendirilmesi, yolsuzlukla mücadele, hukukun üstünlüğünün tesisi, vergi reformu, bürokrasinin azaltılması, şeffaflık gibi alanlarda reformlar yapılmaya çalışılırken, adeta zamanla yarışılıyor. Avrupa Birliği ile 2014 yılında Gümrük Birliği ve Ortaklık antlaşmaları imzalanırken, ülkenin dış ve iç borç yükümlülüklerinin karşılanabilmesi için Uluslararası Para Fonu ile 17.5 milyar dolarlık mali paket konusunda anlaşıldı. Bunlar yapılırken, komşu ülke Rusya’ya ekonomik bağımlılık azaltılmaya çalışılıyor, AB ve IMF antlaşmalarına paralel, yapısal reformların gerçekleştirilmesi sürecine ilişkin farklı ülkelerin deneyimlerinden faydalanılması söz konusu. Amerika Birleşik Devletleri Uluslararası Kalkınma Ajansı’nın(USAID) çalışmalarında da ortaya koyulduğu gibi bu noktada örnek ülke olarak Türkiye’nin deneyimleri ön plana çıkıyor. Ukrayna’nın, Türkiye’nin olumlu olumsuz deneyimlerini incelemesi ve bunlardan istifade etmesi, kendisi için kuşkusuz yararlı olacaktır.
 
-[![DSCN0424](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0424.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0424.jpg)
+[![DSCN0424](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0424.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0424.jpg)
 
 
 AB ile Gümrük Birliği Türk sanayisini iflas ettirmedi, bilakis gelişmesini sağladı
@@ -28,7 +28,7 @@ AB ile Gümrük Birliği Türk sanayisini iflas ettirmedi, bilakis gelişmesini 
 
 Ukrayna’nın Karadeniz komşusu olan Türkiye, 90’lı yılların ortasından itibaren Ukrayna’nın bugün yaşadığına benzer bir dönemi yaşadı. Türkiye, 1996 yılında Avrupa Birliği, ile Gümrük Birliği antlaşması yaptığında bu antlaşmaya en çok karşı olanlar dönemin büyük sanayi işletmeleriydi. Yüksek gümrük vergileri sayesinde pazarda adeta monopol durumunda olan bu firmalar, Avrupa ile gümrük duvarları kalktığında Türk sanayisinin çökeceğini düşünüyorlardı, onlara göre Türk pazarı Avrupa mallarıyla dolacak, buna karşılık Türkiye’nin görece düşük standartlı ürünlerinin Avrupa ülkelerine satılması mümkün olmayacaktı. Ancak onların korktukları gerçekleşmedi. Aksine Avrupa ürünlerinin Türkiye pazarına girişi rekabeti artırarak, Türk üreticilerin üretim standartlarını artırmasını sağladı. Bu sayede Türk ihracatçılarının yalnızca Avrupa pazarlarına değil, kaliteli ve rekabetçi ürünler ile başka birçok ülkeye de ihracatları arttı. Türkiye’nin 1995 yılında yalnızca 28 milyar dolar olarak gerçekleşen Avrupa Birliği ile ticareti 2014 yılında 158 milyar dolara ulaştı. Avrupa Birliği, Türkiye’nin en büyük dış ticaret partneri haline gelirken, Türkiye ise 2015 yılı itibarıyla Rusya’yı da geçerek, AB’nin en çok ticaret yaptığı 5. ülke konumuna yükseldi.
 
-[![ukrayna-turkiye-iliskilerini-660x330](http://burakpehlivan.org/wp-content/uploads/2015/07/ukrayna-turkiye-iliskilerini.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/ukrayna-turkiye-iliskilerini.jpg)
+[![ukrayna-turkiye-iliskilerini-660x330](https://burakpehlivan.org/wp-content/uploads/2015/07/ukrayna-turkiye-iliskilerini.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/ukrayna-turkiye-iliskilerini.jpg)
 
 
 Turizm, ülkeler açısından çok önemli bir döviz kaynağı ve Ukrayna bu kaynaktan yeterince istifade edemiyor.
@@ -42,7 +42,7 @@ Türkiye ve Ukrayna ilişkileri gelecek 5-10 yıllık perspektifte her alanda da
 ----------------------------------------------------------------------------------------------
 
 
-[![TUID-767x1024](http://burakpehlivan.org/wp-content/uploads/2015/07/TUID.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/TUID.jpg)
+[![TUID-767x1024](https://burakpehlivan.org/wp-content/uploads/2015/07/TUID.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/TUID.jpg)
 Türkiye’nin tarihinin en büyük ekonomik krizinin yaşandığı 2001 yılı sonrasında uygulanan IMF programıyla beraber, AB’ye üyelik süreci Türkiye’nin ekonomik, siyasi ve sosyal reform sürecinde çok önemli bir katalizör, hatta çıpa görevi görmüştü. Benzer hatta daha güçlü bir etkiyi önümüzdeki yıllarda Ukrayna’da görmemiz yüksek olasılık. Bu noktada, Türkiye’nin gerek IMF programındaki uygulamaları ve aldığı sonuçlar, gerekse Avrupa ile Gümrük Birliği Antlaşması ve 2004 sonrası AB üyelik sürecinde yaşadıkları Ukrayna’nın yararlanabileceği önemli bir kaynak olarak karşımızda duruyor. İki ülkede kamu alanında da özel sektörde de bu noktadaki işbirlikleri artırılmalı. Bu noktada Amerikan Uluslararası Kalkınma Ajansı’nın, Amerikan Ticaret Odasının ve elbette Türkiye Cumhuriyeti Kiev Büyükelçiliği’nin ile yaşadıkları bu zor döneme rağmen Ukrayna Dışişleri Bakanlığı’nın artan ve sonuç alan çabalarına tanıklık ediyoruz. Başkanvekilliği görevini sürdürdüğüm, Uluslararası Türk Ukrayna İşadamları Derneği’nin de içinde yer aldığı sivil toplum kuruluşları da bu sürece imkanları doğrultusunda katkıda bulunuyorlar. Gelecek 5-10 yıllık perspektif Türkiye ve Ukrayna’nın AB vizyonu eşliğinde başta ekonomi olmak üzere her alanda ikili ilişkilerinin çok yoğunlaştığı tahmininde bugün bulunmak sanırım o günler geldiğinde bizi mahcup etmeyecektir.
 
 **Burak PEHLİVAN**

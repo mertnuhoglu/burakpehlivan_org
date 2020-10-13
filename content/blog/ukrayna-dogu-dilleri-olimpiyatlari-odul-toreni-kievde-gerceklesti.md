@@ -6,7 +6,7 @@ tags: ["Dil Olimpiyatları", "Doğu Dilleri Olimpiyatları", "Fatih Öztürk", "
 type: post
 ---
 
-[![IMG_3450](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3450.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3450.jpg)
+[![IMG_3450](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3450.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3450.jpg)
 Ukrayna Milli Eğitim ve Bilim Bakanlığı tarafından Türk Ukrayna İşadamları Derneği’nin ana sponsorluğunda, Çince, Korece, Türkçe, Arapça ve Farsça gibi dillerde düzenlenen Doğu Dilleri Olimpiyatları’nın ödül töreni ilgili bölümlerin öğretim üyelerinin, Türk, Koreli, Çinli diplomatların, işadamlarının ve finalist öğrencilerin katılımı ile Kiev Milli Dil Bilim Üniversitesinde gerçekleştirildi.
 
 Türkçe bölümünde dereceye giren öğrenciler ödülleri T.C Kiev Büyükelçiliği başkatibi Fatih Öztürk, Türk Ukrayna İşadamları Derneği(TUİD) Başkanvekili Burak Pehlivan ve THY Ukrayna Genel Müdürü Hakan Yılmaz tarafından takdim edildi. Tören esnasında, Türkiye Ukrayna ekonomik, ticari ve kültürel ilişkileri üzerine bir konuşma yapan Burak Pehlivan özetle şunları söyledi.
@@ -21,49 +21,35 @@ Ben hepinizi, bu yarışmaya katılan herkesi gönülden tebrik ediyor, başarı
 
 Ödül törenin akabinde, dereceye giren öğrencilerle, TUİD başkanvekili Burak Pehlivan, T.C. Kiev Büyükelçiliği başkatibi Fatih Öztürk, THY Ukrayna Genel Müdürü Hakan Yılmaz ve Kiev Milli Dil Üniversitesi misafir öğretim üyesi ve Doğu Dilleri Olimpiyatları koordinatörü Nevzat Kayabaş hatıra fotoğrafı çektirdi.
 
-![IMG_3427](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3427.jpg)
+![IMG_3427](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3427.jpg)
 
-[![IMG_3025](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3025.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3025.jpg)
+[![IMG_3025](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3025.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3025.jpg)
 
-[![IMG_3029](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3029.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3029.jpg)
+[![IMG_3029](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3029.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3029.jpg)
 
-[![IMG_3036](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3036.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3036.jpg)
+[![IMG_3036](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3036.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3036.jpg)
 
-[![IMG_3040](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3040.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3040.jpg)
+[![IMG_3040](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3040.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3040.jpg)
 
-[![IMG_3046](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3046.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3046.jpg)
+[![IMG_3046](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3046.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3046.jpg)
 
-[![IMG_3050](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3050.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3050.jpg)
-
- 
-
-[![IMG_3083](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3083.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3083.jpg)
-
-[![IMG_3270](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3270.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3270.jpg)
-
-[![IMG_3287](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3287.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3287.jpg)
-
-[![IMG_3290](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3290.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3290.jpg)
+[![IMG_3050](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3050.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3050.jpg)
 
  
 
- 
+[![IMG_3083](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3083.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3083.jpg)
 
-[![IMG_3328](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3328.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3328.jpg)
+[![IMG_3270](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3270.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3270.jpg)
+
+[![IMG_3287](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3287.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3287.jpg)
+
+[![IMG_3290](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3290.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3290.jpg)
 
  
 
  
 
- 
-
-[![IMG_3364](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3364.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3364.jpg)
-
-[![IMG_3369](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3369.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3369.jpg)
-
-[![IMG_3376](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3376.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3376.jpg)
-
-[![IMG_3421](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3421.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3421.jpg)
+[![IMG_3328](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3328.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3328.jpg)
 
  
 
@@ -71,25 +57,13 @@ Ben hepinizi, bu yarışmaya katılan herkesi gönülden tebrik ediyor, başarı
 
  
 
-[![IMG_3116](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3116.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3116.jpg)
+[![IMG_3364](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3364.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3364.jpg)
 
-[![IMG_3118](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3118.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3118.jpg)
+[![IMG_3369](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3369.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3369.jpg)
 
- 
+[![IMG_3376](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3376.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3376.jpg)
 
-[![IMG_3136](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3136.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3136.jpg)
-
-[![IMG_3146](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3146.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3146.jpg)
-
-[![IMG_3159](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3159.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3159.jpg)
-
- 
-
-[![IMG_3214](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3214.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3214.jpg)
-
-[![IMG_3221](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3221.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3221.jpg)
-
-[![IMG_3233](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3233.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3233.jpg)
+[![IMG_3421](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3421.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3421.jpg)
 
  
 
@@ -97,8 +71,34 @@ Ben hepinizi, bu yarışmaya katılan herkesi gönülden tebrik ediyor, başarı
 
  
 
-[![IMG_3247](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3247.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3247.jpg)
+[![IMG_3116](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3116.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3116.jpg)
 
-[![IMG_3259](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3259.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3259.jpg)
+[![IMG_3118](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3118.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3118.jpg)
 
-[![IMG_3261](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3261.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3261.jpg)
+ 
+
+[![IMG_3136](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3136.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3136.jpg)
+
+[![IMG_3146](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3146.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3146.jpg)
+
+[![IMG_3159](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3159.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3159.jpg)
+
+ 
+
+[![IMG_3214](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3214.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3214.jpg)
+
+[![IMG_3221](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3221.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3221.jpg)
+
+[![IMG_3233](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3233.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3233.jpg)
+
+ 
+
+ 
+
+ 
+
+[![IMG_3247](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3247.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3247.jpg)
+
+[![IMG_3259](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3259.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3259.jpg)
+
+[![IMG_3261](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3261.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/04/IMG_3261.jpg)

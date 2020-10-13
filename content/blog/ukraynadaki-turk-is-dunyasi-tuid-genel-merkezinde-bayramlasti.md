@@ -6,7 +6,7 @@ tags: ["Azi Aslanov", "bayramlaşma", "Beko Ukrayna", "hakan yılmaz", "iftar", 
 type: post
 ---
 
-[![DSCN5757](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN5757.jpg)](http://burakpehlivan.org/1684/ukraynadaki-turk-is-dunyasi-tuid-genel-merkezinde-bayramlasti/dscn5757/)
+[![DSCN5757](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN5757.jpg)](https://burakpehlivan.org/1684/ukraynadaki-turk-is-dunyasi-tuid-genel-merkezinde-bayramlasti/dscn5757/)
 
 Her bayramda olduğu gibi bu bayramda da başta Türk Ukrayna İşadamları Derneği (TUİD) üyeleri olmak üzere Ukrayna’daki Türk işadamları TUİD genel merkezinde bayramlaştı. Kiev Expo Plaza’da kılınan Bayram namazına müteakip gerçekleşen bayramlaşmada TUİD yönetim kurulu başkanvekili Burak Pehlivan ve THY Ukrayna Genel Müdürü Hakan Yılmaz da birer konuşma yaptılar.
 

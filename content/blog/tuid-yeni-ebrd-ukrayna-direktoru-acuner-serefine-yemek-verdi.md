@@ -6,7 +6,7 @@ tags: ["Cem Murat Aytaç", "ebrd", "EBRD Ukrayna", "Hacı Bayram Bolat", "hakan 
 type: post
 ---
 
-[![YER_9595](http://burakpehlivan.org/wp-content/uploads/2013/09/YER_9595.jpg)](http://burakpehlivan.org/1813/tuid-yeni-ebrd-ukrayna-direktoru-acuner-serefine-yemek-verdi/yer_9595/)
+[![YER_9595](https://burakpehlivan.org/wp-content/uploads/2013/09/YER_9595.jpg)](https://burakpehlivan.org/1813/tuid-yeni-ebrd-ukrayna-direktoru-acuner-serefine-yemek-verdi/yer_9595/)
 Ukrayna’daki Türk ve uluslararası firmalarda üst düzey yönetici olarak görev yapan Türk profesyoneller, ülkede bir süre önce göreve gelen, Avrupa İmar ve Kalkınma Bankası (EBRD) Ukrayna Direktörü Şevki Acuner ile tanışma yemeğinde buluştu.
 
 Türk Ukrayna İşadamları Derneği (TUİD) tarafından Şevki Acuner şerefine verilen tanışma yemeğine; Türkiye'nin Kiev Büyükelçisi Mehmet Samsar, Türk İşbirliği ve Kalkınma Ajansı (TİKA) Ukrayna Program Koordinasyon Ofisi Koordinatörü Hacı Bayram Bolat ve Türk Hava Yolları (THY) Kiev Müdürü Hakan Yılmaz da iştirak etti.

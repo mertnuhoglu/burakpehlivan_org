@@ -6,7 +6,7 @@ tags: ["Belkıs Gürsel Güleç", "Cem Murat Aytaç", "Eynulla Medetli", "Hacı 
 type: post
 ---
 
-[![261213_fg21](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg21.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg21.jpg)
+[![261213_fg21](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg21.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg21.jpg)
 
 Türk Ukrayna İşadamları Derneği(TUİD), Ukrayna’daki görev süresi sona eren Türkiye Cumhuriyeti Kiev Büyükelçisi Mehmet Samsar ve eşleri Feruza Samsar’ın onuruna bir veda yemeği verdi. Kiev Lipskiy Malikanesi’nde verilen yemeğe, Azerbaycan Büyükelçisi Eynulla Medetli ve eşleri, Pakistan Büyükelçisi Vacihat Ali Müfti ve eşleri, Büyükelçi Mehmet Samsar’ın maiyeti, TUİD yönetim kurulu başkanı Cem Murat Aytaç, T.C.Kiev Ticaret Müşaviri Belkıs Gürsel Güleç, TİKA Ukrayna Program koordinatörü Hacı Bayram Bolat TUİD yönetim kurulu üyeleri, TUİD Üyesi işadamları, Henkel, Shell gibi çokuluslu firmaların Ukrayna’daki Türk genel müdürleri, Türkiye’nin önde gelen holdinglerinin Ukrayna İştiraklerinin yöneticileri, Ukrayna dışişleri bakanlığı, Ukrayna Yabancı Yatırım Ajansı ve Ukrayna Sanayi ve Ticaret Odası temsilcileri ve Türk işadamlarının bulunduğu çok sayıda davetli katıldı.
 
@@ -49,14 +49,14 @@ Gece, TUİD yönetim kurulunun, Büyükelçi Mehmet Samsar ile çektirdiği hat�
 
 Kaynak :tuid.org.ua
 
-[![261213_fg07](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg07.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg07.jpg)
+[![261213_fg07](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg07.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg07.jpg)
 
-[![261213_fg01](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg01.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg01.jpg)
+[![261213_fg01](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg01.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg01.jpg)
 
-[![261213_fg06](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg06.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg06.jpg)
+[![261213_fg06](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg06.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg06.jpg)
 
-[![261213_fg02](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg02.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg02.jpg)
+[![261213_fg02](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg02.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg02.jpg)
 
-[![261213_fg20](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg20.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg20.jpg)[![261213_fg04](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg04.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg04.jpg)
+[![261213_fg20](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg20.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg20.jpg)[![261213_fg04](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg04.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg04.jpg)
 
-[![261213_fg09](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg09.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg09.jpg) [![261213_fg10](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg10.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg10.jpg) [![261213_fg11](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg11.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg11.jpg) [![261213_fg13](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg13.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg13.jpg)
+[![261213_fg09](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg09.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg09.jpg) [![261213_fg10](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg10.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg10.jpg) [![261213_fg11](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg11.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg11.jpg) [![261213_fg13](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg13.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/261213_fg13.jpg)

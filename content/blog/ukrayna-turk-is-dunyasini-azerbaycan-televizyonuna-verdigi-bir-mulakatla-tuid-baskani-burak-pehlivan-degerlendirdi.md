@@ -6,7 +6,7 @@ tags: ["Azerbaycan", "Burak Pehlivan", "röportaj", "TUİD (Türk Ukrayna İşad
 type: post
 ---
 
-[![Скриншот 2016-08-09 21.16.06](http://burakpehlivan.org/wp-content/uploads/2016/08/Скриншот-2016-08-09-21.16.06.png)](http://burakpehlivan.org/wp-content/uploads/2016/08/Скриншот-2016-08-09-21.16.06.png)
+[![Скриншот 2016-08-09 21.16.06](https://burakpehlivan.org/wp-content/uploads/2016/08/Скриншот-2016-08-09-21.16.06.png)](https://burakpehlivan.org/wp-content/uploads/2016/08/Скриншот-2016-08-09-21.16.06.png)
 
 Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) yönetim kurulu başkanı Burak Pehlivan, Ukrayna’daki Türk İş dünyasını ve ülkedeki Türk yatırımlarını Azerbaycan televizyonuna bir mülakat ile değerlendirdi. Pehlivan, ayrıca Ukrayna’da Azerbaycan İşadamları Derneği’nin kurulması için Türk iş dünyasının yaptığı katkıları da kamuoyu ile paylaşırken, Ukrayna Türk iş dünyasının çatı kuruluşu TUİD’in geçmişten bugüne gelişimini de anlattı.
 

@@ -6,7 +6,7 @@ tags: ["erdogan", "Erdoğan Ukrayna", "hıdır geviş", "Hıdır Geviş Ukrayna"
 type: post
 ---
 
-[![erdoga-marketing-gucu](http://burakpehlivan.org/wp-content/uploads/2013/03/erdoga-marketing-gucu1.png)](http://burakpehlivan.org/1328/baslik-taraf-gazetesi-yazari-hidir-gevis-ukrayna-yazilarina-devam-ediyor/erdoga-marketing-gucu-2/)
+[![erdoga-marketing-gucu](https://burakpehlivan.org/wp-content/uploads/2013/03/erdoga-marketing-gucu1.png)](https://burakpehlivan.org/1328/baslik-taraf-gazetesi-yazari-hidir-gevis-ukrayna-yazilarina-devam-ediyor/erdoga-marketing-gucu-2/)
 
 Taraf Gazetesi yazarı Hıdır Geviş, Türk Ukrayna İşadamları Derneği (TUİD)’in davetlisi olarak geldiği Ukrayna’da Türk İş Dünyası'nın, Türk hükümet yetkililerinin ve devlet görevlilerinin, Türkiye ve Ukrayna ilişkilerinin daha da gelişmesine, özellikle sık ziyaretler yoluyla katkıda bulunulması konusundaki taleplerine işaret etmiş.
 

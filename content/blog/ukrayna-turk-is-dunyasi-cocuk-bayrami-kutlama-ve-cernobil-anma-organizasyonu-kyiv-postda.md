@@ -6,7 +6,7 @@ tags: ["23 Nisan Çocuk Bayramı", "26 Nisan Çernobil Nükleer Felaketi", "anma
 type: post
 ---
 
-[![tuid-kyivpost-23-nisan](http://burakpehlivan.org/wp-content/uploads/2015/05/tuid-kyivpost-23-nisan.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/tuid-kyivpost-23-nisan.jpg)
+[![tuid-kyivpost-23-nisan](https://burakpehlivan.org/wp-content/uploads/2015/05/tuid-kyivpost-23-nisan.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/tuid-kyivpost-23-nisan.jpg)
 Uluslararası Türk Ukrayna İşadamları Derneği'nin(TUİD), Ukrayna'nın başkenti Kiev'de bu yıl dördüncüsünü düzenlediği 23 Nisan Çocuk Bayramı kutlaması ve 26 Nisan Çernobil Nükleer Felaketini anma organizasyonu, yalnızca Ukrayna'nın değil, Doğu Avrupa'nın en prestijli yayın organlarından biri olan Kyiv Post'un sayfalarında.
 
 

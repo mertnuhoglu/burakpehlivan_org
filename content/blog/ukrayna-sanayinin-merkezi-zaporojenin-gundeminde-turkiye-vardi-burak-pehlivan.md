@@ -6,7 +6,7 @@ tags: ["Ekonomi", "ekonomi", "forum", "Genel", "Lviv", "röportaj", "TUİD", "TU
 type: post
 ---
 
-[![14711432_1256778751019058_7859504322298481293_o](http://burakpehlivan.org/wp-content/uploads/2016/10/14711432_1256778751019058_7859504322298481293_o2.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/10/14711432_1256778751019058_7859504322298481293_o2.jpg)
+[![14711432_1256778751019058_7859504322298481293_o](https://burakpehlivan.org/wp-content/uploads/2016/10/14711432_1256778751019058_7859504322298481293_o2.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/10/14711432_1256778751019058_7859504322298481293_o2.jpg)
 
 
 
@@ -29,7 +29,7 @@ Ukrayna'nın sanayi merkezi Zaporoje'de geçtiğimiz hafta düzenlenen Zaporoje 
 
 
 
-![dsc_3671-001-09-54-06](http://burakpehlivan.org/wp-content/uploads/2016/10/DSC_3671-001-09.54.06.jpg)
+![dsc_3671-001-09-54-06](https://burakpehlivan.org/wp-content/uploads/2016/10/DSC_3671-001-09.54.06.jpg)
 
 
 
@@ -39,7 +39,7 @@ Ukrayna'nın sanayi merkezi Zaporoje'de geçtiğimiz hafta düzenlenen Zaporoje 
 
 
 
-![14700996_1256771034353163_8191256877080998207_o](http://burakpehlivan.org/wp-content/uploads/2016/10/14700996_1256771034353163_8191256877080998207_o.jpg)
+![14700996_1256771034353163_8191256877080998207_o](https://burakpehlivan.org/wp-content/uploads/2016/10/14700996_1256771034353163_8191256877080998207_o.jpg)
 
 
 
@@ -64,7 +64,7 @@ Ukrayna'nın sanayi merkezi Zaporoje'de geçtiğimiz hafta düzenlenen Zaporoje 
 
 
 
-![tass_6804362-pic4_zoom-1000x1000-81909](http://burakpehlivan.org/wp-content/uploads/2016/10/TASS_6804362-pic4_zoom-1000x1000-81909.jpg)
+![tass_6804362-pic4_zoom-1000x1000-81909](https://burakpehlivan.org/wp-content/uploads/2016/10/TASS_6804362-pic4_zoom-1000x1000-81909.jpg)
 
 
 
@@ -109,7 +109,7 @@ Partner kuruluşlarımızla birlikte birinci Türkiye Ukrayna Teknoloji Zirvesin
 
 
 
-![92099](http://burakpehlivan.org/wp-content/uploads/2016/10/92099.jpg)
+![92099](https://burakpehlivan.org/wp-content/uploads/2016/10/92099.jpg)
 
 
 

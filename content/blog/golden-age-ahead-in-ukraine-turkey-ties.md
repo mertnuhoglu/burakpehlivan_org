@@ -6,7 +6,7 @@ tags: ["Ekonomi", "English Articles", "free trade", "Petro Poroşenko", "TUİD (
 type: post
 ---
 
-\[caption id="attachment\_5364" align="alignnone" width="455"\]![Turkey's President Recep Tayyip Erdogan (L) welcomes Ukraine's President Petro Poroshenko (R) as they review a Guard of Honour during an official welcoming ceremony in Ankara, on March 9, 2016. / AFP PHOTO / ADEM ALTAN](http://burakpehlivan.org/wp-content/uploads/2016/11/19_000_8L8WF.jpg) Turkey's President Recep Tayyip Erdogan (L) welcomes Ukraine's President Petro Poroshenko (R) as they review a Guard of Honour during an official welcoming ceremony in Ankara, on March 9, 2016. / AFP PHOTO / ADEM ALTAN\[/caption\]
+\[caption id="attachment\_5364" align="alignnone" width="455"\]![Turkey's President Recep Tayyip Erdogan (L) welcomes Ukraine's President Petro Poroshenko (R) as they review a Guard of Honour during an official welcoming ceremony in Ankara, on March 9, 2016. / AFP PHOTO / ADEM ALTAN](https://burakpehlivan.org/wp-content/uploads/2016/11/19_000_8L8WF.jpg) Turkey's President Recep Tayyip Erdogan (L) welcomes Ukraine's President Petro Poroshenko (R) as they review a Guard of Honour during an official welcoming ceremony in Ankara, on March 9, 2016. / AFP PHOTO / ADEM ALTAN\[/caption\]
 
  
 

@@ -6,7 +6,7 @@ tags: ["Diplomasi", "Dış Ticaret", "Ekonomi", "japonya", "Ukrayna", "Ukrayna D
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/01/Ekran-Resmi-2019-01-12-21.35.25-1.png)
+![](https://burakpehlivan.org/wp-content/uploads/2019/01/Ekran-Resmi-2019-01-12-21.35.25-1.png)
 
 
 
@@ -39,7 +39,7 @@ Güneş ülkesi ayrıca bu yardımlar dışında da farklı projeleri kredilendi
 Geçtiğimiz yıl Ukrayna’da, Japonya yılıydı. Bu çerçevede bir dizi kültürel etkinlik yapılırken, Ukrayna’nın her bölgesine Japon kiraz ağaçları, Sakuralar dikildi. Finalde ise Japonya Dışişleri Bakanı yardımcısı ve Ukrayna Cumhurbaşkanı’nın katılımıyla, bugün Kiev’in Modern Sanatlar Müzesi olarak hizmet veren eski silah fabrikası Mistetskiy Arsanel’de Japon Sanatları Sergisi gerçekleştirilmişti. Ben de bu sergiyi Japon delegasyonu, ile Cumhurbaşkanı Poroşenko ve eşleriyle birlikte gezme onuruna sahip olmuştum.
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/01/Ekran-Resmi-2019-01-12-21.33.40.png)
+![](https://burakpehlivan.org/wp-content/uploads/2019/01/Ekran-Resmi-2019-01-12-21.33.40.png)
 
 
 Japonya, Türkiye’nin geleneksel bir dostu. Nitekim G7 ülkeleri arasında, ülkemize vize uygulamayan tek ülke de Japonya. Ukrayna’da, Japon iş dünyası da, diplomatik organları da Türk iş dünyasıyla harika ilişkilere sahip. Ukrayna Bağımsızlık tarihinin en büyük yatırımlarından biri olan Kiev Borispol Havalimanın yeni terminal binası inşaatının finansmanını Japonlar sağlamışlar ve Doğuş-YDA-Alarko ortak girişiminin oluşturduğu Türk inşaat firmalarının gerçekleştirdiği inşaattan da çok memnun kalmışlardı. Dolasıyla bundan sonra da büyüklüğü bir milyar doları bulacak Kiev içme suyu arıtma tesisi projesi gibi Japonya’nın finanse edeceği inşaat projelerinde Türk firmalarının önünde çok güzel bir referans duruyor.

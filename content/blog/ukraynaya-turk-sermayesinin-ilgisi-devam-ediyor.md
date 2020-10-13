@@ -6,7 +6,7 @@ tags: ["Can Sirman", "Edip Paçal", "GÜNTİAD", "İhsan Oğurlu", "Kenan Bayta�
 type: post
 ---
 
-[![ukraynaya-turk-sermayesinin-ilgisi-devam-ediyor](http://burakpehlivan.org/wp-content/uploads/2014/05/ukraynaya-turk-sermayesinin-ilgisi-devam-ediyor.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/05/ukraynaya-turk-sermayesinin-ilgisi-devam-ediyor.jpg)
+[![ukraynaya-turk-sermayesinin-ilgisi-devam-ediyor](https://burakpehlivan.org/wp-content/uploads/2014/05/ukraynaya-turk-sermayesinin-ilgisi-devam-ediyor.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/05/ukraynaya-turk-sermayesinin-ilgisi-devam-ediyor.jpg)
 
 Ukrayna’daki siyasi istikrarsızlığa ve yaşanan ekonomik problemlere rağmen ülkeye Türk işadamı heyetlerinin ilgisi devam ediyor. Bu çerçevede son dönemde iki Türk işadamı heyeti başkent Kiev’de, aralarında Türk Ukrayna İşadamları Derneği’nin de (TUİD) bulunduğu kurum ve kuruluşlara ziyarette bulundular. Bu heyetlerden biri Türkiye’nin önde gelen boya sanayicileri ve yöneticilerinden oluşurken diğer heyeti ise Güneydoğu Tekstil Sanayi ve İşadamları Derneği(GÜNTİAD) yönetimi kurulu üyeleri oluşturdu.
 

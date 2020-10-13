@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Ekonomi", "English", "English Articles", "Free Trade A
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/05/kestik2.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/05/kestik2.jpeg)
 
 Interviewed by James Brooke, editor in chief of the Ukraine Business Journal(UBJ) at the TUID.
 
@@ -22,7 +22,7 @@ This frequency reflects fast growing travel, trade and investment between Turkey
 
 With two other Turkish airlines, Pegasus and Atlas, flying between Turkey and Ukraine, the number of Ukrainians visiting Turkey shot up by 54 percent last year, topping 1 million. The number of Turks visiting Ukraine hit 220.000 .
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/05/Picture1.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/05/Picture1.png)
 
 **Passport-free Travel**
 

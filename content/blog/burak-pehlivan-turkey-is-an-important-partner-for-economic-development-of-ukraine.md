@@ -6,7 +6,7 @@ tags: ["development Turkish Ukrainian Free Trade Agreement", "Ekonomi", "English
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-08-at-10.48.50.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-08-at-10.48.50.png)
 
 Ukraine is changing, evolving rapidly, that the depth and scope of structural reforms achieved in last three and a half years, is more than what has been done in the first 23 years of independent Ukraine. As the result of said reforms, Ukraine’s ranking in the World Bank’s ease of doing business index, has increased from 157th to 80th, by advancing 77 ranks, in the last 7 years. During this term, there is no other country that could make the breakthrough realized by Ukraine. However, all positive developments are not reflected to economic growth at the desired scale unfortunately.
 

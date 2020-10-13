@@ -6,7 +6,7 @@ tags: ["Anna Derevyanko", "Avrupa İşadamları Birliği", "deneyimlerinden", "e
 type: post
 ---
 
-[![DSCN0271](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0271.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0271.jpg)
+[![DSCN0271](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0271.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0271.jpg)
 
 Türkiye’nin gönüllülük esasına göre örgütlenmiş en büyük işadamları organizasyonu olan TÜRKONFED, Karadeniz ülkeleri arasındaki ekonomik işbirliğinin gelişimine katkıda bulunmak için German Marshall Fonuyla ortak tasarlanan proje kapsamında Ukrayna’ya yaptığı ziyarette, Türk Ukrayna İşadamları Derneği ziyareti sonrasında, Ukrayna’daki en büyük yabancı işadamları derneği olan Avrupa İşadamları Birliği’ne (EBA) ve yine Ukrayna’da büyük sermayenin en geniş biçimde temsil edildiği kurum olan Ukrayna İşverenler Federasyonu(FEU)’ya birer ziyaret gerçekleştirdi. Ziyaretlerde TÜRKONFED’e TUİD heyeti de eşlik etti.
 
@@ -20,18 +20,18 @@ TÜRKONFED başkanı Süleyman Onatça, kurum olarak yer yıl yaptıkları sempo
 
 Ziyaret sonrası TÜRKONFED, FEU ve TUİD yönetimleri arasında, FEU’dan bir heyetin Türkiye’ye bir çalışma ziyareti yapması konusunda mutabakata varıldı.
 
-![DSCN0262](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0262.jpg)
+![DSCN0262](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0262.jpg)
 
-![DSCN0261](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0261.jpg)
+![DSCN0261](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0261.jpg)
 
-[![DSCN0274](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0274.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0274.jpg)
+[![DSCN0274](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0274.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0274.jpg)
 
-![Foto2](http://burakpehlivan.org/wp-content/uploads/2015/05/Foto2.jpg)
+![Foto2](https://burakpehlivan.org/wp-content/uploads/2015/05/Foto2.jpg)
 
-[![DSCN0287](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0287.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0287.jpg)
+[![DSCN0287](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0287.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0287.jpg)
 
-[![DSCN0289](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0289.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0289.jpg)
+[![DSCN0289](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0289.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0289.jpg)
 
-[![DSCN0283](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0283.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0283.jpg)
+[![DSCN0283](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0283.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0283.jpg)
 
-[![DSCN0268](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0268.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0268.jpg)
+[![DSCN0268](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0268.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0268.jpg)

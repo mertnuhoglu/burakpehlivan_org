@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "Ekonomi", "TUİD", "Türkiye Ukrayna Serbest Ticaret An
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-29-at-20.10.07.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-29-at-20.10.07.png)
 
 
 Doğu ve güney Ukrayna’nın en geniş kapsamlı ekonomi forumu, Zaporoje Ekonomi Forum’nda yaptığım konuşmada, Ukrayna’da son yıllarda gerçekleştirilen yapısal reformların ülke ekonomisine olumlu etkisine, ülkedeki Türk iş dünyasının Ukrayna’nın hızlı kalkınma sürecinde oynadığı ve oynayabileceği kolaylaştırıcı role ve Türkiye Ukrayna Serbest Ticaret Antlaşması’nın imzalanmasının önünü açacağı karşılıklı ticaret ve yatırım fırsatlarına dikkat çekmeye çalıştım. Türk iş dünyası, ülkemiz binin üzerinde işadamının katıldığı forumun yıldızıydı. Ukrayna’nın en önemli sanayi kenti olan Zaporoje’de gerçekleşen organizasyona katılan yabancı işadamlarının yarıya yakını Türk’tü. Türk sermayesi Ukrayna’da yalnız başkent Kiev’e değil, aralarında Zaporoje’nin de yer aldığı ülkenin farklı bölgelerine de ilgi duyuyor. Orijinalini Rusça olarak yaptığım konuşmanın, Türkçe özetine yer veriyorum.

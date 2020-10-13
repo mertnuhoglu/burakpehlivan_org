@@ -6,7 +6,7 @@ tags: ["ağaç", "Dış Ticaret", "Ekonomi", "Haydar Koçak", "Konuk Yazarlar", 
 type: post
 ---
 
-![59d244c0-ce4a-41d2-85f2-63f3536b9e9a-1682-000001b47a487ac1_tmp](http://burakpehlivan.org/wp-content/uploads/2017/01/59D244C0-CE4A-41D2-85F2-63F3536B9E9A-1682-000001B47A487AC1_tmp.jpg)
+![59d244c0-ce4a-41d2-85f2-63f3536b9e9a-1682-000001b47a487ac1_tmp](https://burakpehlivan.org/wp-content/uploads/2017/01/59D244C0-CE4A-41D2-85F2-63F3536B9E9A-1682-000001B47A487AC1_tmp.jpg)
 
 Ukrayna'nın en önemli ihraç kalemlerinden biri de orman ürünleri ve ülkemiz bu ürünlerin Ukrayna'dan ithalatında Avusturya ve Çin ile birlikte ilk 3 sırada yer alıyor. Türkiye'nin, Ukrayna'dan toplam ithalatının yaklaşık %10'unu da yine orman ürünleri oluşturuyor. Orman ürünleri kaynağı, yurt içi üretimi karşılayaman ülkemizin bu alandaki toplam ithalatında Ukrayna'nın toplam payı ise 2016 yılının ilk on ayında %17 seviyesinde gerçekleşti. Türkiye ile Ukrayna arasındaki ticarette çok önemli bir kalem olan orman ürünleri sektöründe ne yazık ki bugüne kadar Türkçe tek bir rapora dahi sahip değildik. Türkiye Cumhuriyeti Kiev Ticaret müşaviri Haydar Koçak,  bloğumda ikinci kez konuk yazar olarak kendisine yer verdiğim Ukrayna mobilya ve ağaç sektörü raporuyla bu konuda önemli bir kaynak eksikliğini gidermiş oldu.
 
@@ -1752,7 +1752,7 @@ Bu çerçevede, 1991 yılından itibaren ülkede yapısal reformların henüz ge
 
 **Haydar KOÇAK**
 
-![dscn01671](http://burakpehlivan.org/wp-content/uploads/2017/01/DSCN01671.jpg)
+![dscn01671](https://burakpehlivan.org/wp-content/uploads/2017/01/DSCN01671.jpg)
 
 **Türkiye Cumhuriyeti Kiev Ticaret Müşaviri**
 

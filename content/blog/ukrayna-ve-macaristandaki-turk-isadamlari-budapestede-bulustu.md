@@ -6,7 +6,7 @@ tags: ["Abdullah Çakmak", "Ahmet Mücahit Akyüz", "Aziz Şimşek", "budapeşte
 type: post
 ---
 
-[![ukrayna-ve-macaristandaki-turk-isadamlari-budapestede-bulustu](http://burakpehlivan.org/wp-content/uploads/2013/01/ukrayna-ve-macaristandaki-turk-isadamlari-budapestede-bulustu.jpg)](http://burakpehlivan.org/1205/ukrayna-ve-macaristandaki-turk-isadamlari-budapestede-bulustu/ukrayna-ve-macaristandaki-turk-isadamlari-budapestede-bulustu/)
+[![ukrayna-ve-macaristandaki-turk-isadamlari-budapestede-bulustu](https://burakpehlivan.org/wp-content/uploads/2013/01/ukrayna-ve-macaristandaki-turk-isadamlari-budapestede-bulustu.jpg)](https://burakpehlivan.org/1205/ukrayna-ve-macaristandaki-turk-isadamlari-budapestede-bulustu/ukrayna-ve-macaristandaki-turk-isadamlari-budapestede-bulustu/)
 
 Türk Ukrayna İşadamları Derneği(TUİD) heyeti ile Türk Macar İşadamları Derneği(TÜMİŞAD) yönetim kurulu Budapeşte’de bir araya geldi. TUİD tarafından başkanvekili Burak Pehlivan, yönetim kurulu üyesi Aziş Şimşek ve genel koordinatör Alaaddin Güven Memiş görüşmeye katılırken, TÜMİŞAD başkanı Osman Şahbaz, başkanvekili Emin Altaç, yönetim kurulu üyeleri Mete Atuğ, Murat Yıldız, Abdullah Çakmak, Ahmet Mücahit Akyüz, Hakan Yıldız, Tarık Tekeş ve Genek Sekreter Dr. Kamil Nas Le Meridyen Budapeşte’de gerçekleştirilen toplantıda hazır bulundular. Görüşmenin ana gündem maddelerini iki derneğin yaptığı çalışmalar, dernekler arası ilişkiler ve Doğu Avrupa Türk İşadamları Dernekleri Birliği(DAİB) projesi oluşturdu.
 

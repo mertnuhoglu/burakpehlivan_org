@@ -6,7 +6,7 @@ tags: ["Alaaddin Güven Memiş", "TUİD (Türk Ukrayna İşadamları Derneği)",
 type: post
 ---
 
-[![YER_8086](http://burakpehlivan.org/wp-content/uploads/2013/08/YER_8086.jpg)](http://burakpehlivan.org/1760/alaadin-guven-memise-veda-yemegi-verildi/yer_8086/)
+[![YER_8086](https://burakpehlivan.org/wp-content/uploads/2013/08/YER_8086.jpg)](https://burakpehlivan.org/1760/alaadin-guven-memise-veda-yemegi-verildi/yer_8086/)
 
 TUİD Halkla ilişkiler müdürü Alaaddin Güven Memiş’e, TUİD Yönetim Kurulu başkanvekili Burak Pehlivan’ın ev sahipliğinde Kiev Massimo Restoran’da bir veda yemeği verildi. Geceye, TUİD genel sekreteri Beran Kilerci, TUİD eski genel sekreteri Fatih Şahin’in yanı sıra,  Doğan Haber Ajansı Ukrayna  muhabiri Sonat Kerem, Cumhuriyeti Gazetesi ve TRT Türk Ukrayna muhabiri Deniz Berktay, Cihan Haber Ajansı Ukrayna muhabiri Yunus Erdoğdu ile TUİD ve türkhaber web sitelerinin editörü Erhan Çimen’in de aralarında bulunduğu Ukrayna’daki Türk basın mensupları iştirak etti.
 
@@ -18,4 +18,4 @@ Gecede ayrıca Ukrayna hakkındaki iki popüler Türkçe haber sitesinin hem [ww
 
 Kaynak : http://tuid.org.ua/alaadin-guven-memise-veda-yemegi-verildi
 
-[![YER_8089](http://burakpehlivan.org/wp-content/uploads/2013/08/YER_8089.jpg)](http://burakpehlivan.org/1760/alaadin-guven-memise-veda-yemegi-verildi/yer_8089/)
+[![YER_8089](https://burakpehlivan.org/wp-content/uploads/2013/08/YER_8089.jpg)](https://burakpehlivan.org/1760/alaadin-guven-memise-veda-yemegi-verildi/yer_8089/)

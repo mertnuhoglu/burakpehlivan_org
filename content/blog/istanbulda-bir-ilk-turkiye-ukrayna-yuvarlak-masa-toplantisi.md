@@ -6,7 +6,7 @@ tags: ["David Stuckey", "DEİK", "Dış Ticaret", "Ekonomi", "Gün+Partners", "T
 type: post
 ---
 
-![img_4625](http://burakpehlivan.org/wp-content/uploads/2016/12/IMG_4625.jpg)
+![img_4625](https://burakpehlivan.org/wp-content/uploads/2016/12/IMG_4625.jpg)
 
 
 

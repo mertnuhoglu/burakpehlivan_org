@@ -6,7 +6,7 @@ tags: ["Ekonomi", "Serbest Ticaret Antlaşması", "Ukrayna", "Ukrayna Dış İli
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/07/20190618060506-5599-1024x487.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/07/20190618060506-5599-1024x487.jpeg)
 
 Ukrayna’da rekor oyla cumhurbaşkanı seçilen Volodimir Zelenskiy, halkın değişim ve reformlar konusundaki yoğun iradesi ve tercihinin de etkisiyle, Ukrayna’da bugüne kadar hiçbir cumhurbaşkanının başaramadığını başardı ve partisi Halkın Hizmetkarları 21 Temmuz erken milletvekili genel seçimleri sonucunda Meclis’te mutlak çoğunluğa ulaştı. Bundan sonra halkın beklentisi, reformların ve icraatların somut ve olumlu etkisini günlük yaşamlarında hızla görmek ve bu konuda mazeret yok artık.
 

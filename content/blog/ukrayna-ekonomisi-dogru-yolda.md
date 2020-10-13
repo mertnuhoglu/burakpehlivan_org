@@ -6,7 +6,7 @@ tags: ["ebrd", "EBRD Ukrayna", "Ekonomi", "Şevki Acuner", "TUİD (Türk Ukrayna
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8989-46-1.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8989-46-1.jpg)
 
 
 
@@ -59,4 +59,4 @@ Ukrayna AB ve Kanada ise Serbest Ticaret antlaşmaları(STA) imzaladı. Serbest 
 **Burak PEHLİVAN**
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8928-1.jpg)  ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8932-5.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8933-6.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8935-8.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8939-11.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8943-14.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8944-15.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8948-19.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8951-21.jpg)  ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8955-24.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8959-28.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8962-31.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8966-33.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8972-37.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8976-40.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8978-42.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8988-45.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8928-1.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8932-5.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8933-6.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8935-8.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8939-11.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8943-14.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8944-15.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8948-19.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8951-21.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8955-24.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8959-28.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8962-31.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8966-33.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8972-37.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8976-40.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8978-42.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_8988-45.jpg)

@@ -6,7 +6,7 @@ tags: ["Aziz Şimşek", "DEİK", "Dış Ekonomik İlişkileri Konseyi", "Garbis 
 type: post
 ---
 
-[![fotograf 3](http://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-3.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-3.jpg)
+[![fotograf 3](https://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-3.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-3.jpg)
 Dış Ekonomik İlişkileri Konseyi(DEİK) Türk Ukrayna İş Konseyi başkanı Ruşen Çetin, Türkiye Cumhuriyeti Cumhurbaşkanı Recep Tayyip Erdoğan’ın 20 Mart’ta Ukrayna’ya yapacağı ziyaret öncesi görüşmeler yapmak üzere Kiev’e gelirken, Türk Ukrayna İşadamları Derneği(TUİD)’e de bir nezaket ziyareti yaptı. Çetin, burada TUİD başkanvekili Burak Pehlivan, yönetim kurulu üyeleri Aziz Şimşek ve aynı zamanda Odesa temsilcisi de olan yönetim kurulu üyesi Batur Bayman tarafından karşılanırken, görüşmede işadamları Garbis Evyapan ile Uğur Uyar da hazır bulundu. 
 
 Toplantının başında bir konuşma yapan TUİD başkanvekili Burak Pehlivan, Ukrayna’nın siyasi ve ekonomik açıdan çok zor günler geçirdiğini, 2013 yılı sonu itibarıyla ülkenin 180 milyar dolar seviyesinde bulunan ekonomik büyüklüğünün, 2015 sonunda farklı hesaplara ve kur öngörülerine göre 75 ila 100 milyar dolar arasında beklendiğini, sabit fiyatlarla ekonominin bir yılda %10 civarında küçüldüğünü, geçici olduğunu düşündükleri toprak kayıplarının yaşandığını, keskin devalüasyonun, %30’ları bulan enflasyona, yüksek işsizliğe yol açtığını, IMF’in ilk kredi dilimi serbest bırakılmadan önceki Merkez Bankası rezervlerinin ise ülkenin ancak 1 aylık ihracatını karşılayabilecek bir seviyeye düştüğünü belirterek, böyle acı ekonomik koşullar altında, bu yaşananlardan Ukrayna’daki Türk iş dünyasının etkilenmediğini söylemenin mümkün olmadığını ifade etti. Pehlivan, “ancak tüm bu problemlere rağmen işadamlarımız başka ülke işadamlarına göre özellikle kurumlarıyla görece çok daha aktifler ve ticaretlerini yazılan yüksek zararlara rağmen devam ettirmeye çalışıyorlar, hatta ülkeye yeni girişlere de tanıklık ediyoruz” dedi. TUİD başkanvekili böyle zamanlarda Türk iş kurumları arasındaki temasların ve işbirliklerinin her zamankinden daha da çok önem taşıdığını belirterek, Ruşen Çetin’in ziyaretinden duyduğu memnuniyeti dile getirdi. 
@@ -20,6 +20,6 @@ DEİK Türk Ukrayna İş Konseyi Başkanı Ruşen Çetin’in, Türk Ukrayna İ�
 **Kaynak**:
 [www.tuid.org.ua](http://www.tuid.org.ua)
 
-[![fotograf (2)](http://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-2.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-2.jpg)
+[![fotograf (2)](https://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-2.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-2.jpg)
 
-[![fotograf (1)](http://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-1.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-1.jpg)
+[![fotograf (1)](https://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-1.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/03/fotograf-1.jpg)

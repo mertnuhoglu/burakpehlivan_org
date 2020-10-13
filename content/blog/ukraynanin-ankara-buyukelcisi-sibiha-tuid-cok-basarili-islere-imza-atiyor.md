@@ -6,7 +6,7 @@ tags: ["Andriy Sibiha", "TUİD (Türk Ukrayna İşadamları Derneği)", "Türkiy
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-16-at-23.26.33.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-16-at-23.26.33.png)
 
 
 

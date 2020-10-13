@@ -14,7 +14,7 @@ type: post
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/540d1d09a2baa232acbd2fb1688ae852_XL-1.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/540d1d09a2baa232acbd2fb1688ae852_XL-1.jpg)
 
 
 Uluslararası Türk Ukrayna İşadamları Derneği’nin(TUİD) yedinci şubesinin resmi açılışı Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Tezel’in de teşrif ettiği bir törenle yapıldı. Ukrayna’nın önde gelen sanayi kenti Zaporoje’deki temsilcilik, TUİD’in Odesa ve Herson’dan sonra Güney Ukrayna’daki üçüncü ofisi oldu. Zaporoje Belediye Başkan yardımcısı Anatoliy Pustavarov, Zaporoje Sanayi ve Ticaret Odası Başkanı Vladimir Şamilov, T.C. Kiev Büyükelçisi Yönet Canal Tezel, ile TUİD yönetim kurulu başkanı Burak Pehlivan açılış kurdelesini beraber keserlerken, törene Ukrayna Sanayi ve Ticaret Odası başkan yardımcısı Sergey Svistil, THY Zaporoje Müdürü Şenol Sakallı, TUİD yönetim kurulu üyeleri, Türk ve Ukraynalı işadamları ile basın mensupları katılım gösterdi.

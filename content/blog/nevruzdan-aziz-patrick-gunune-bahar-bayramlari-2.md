@@ -6,7 +6,7 @@ tags: ["Genel"]
 type: post
 ---
 
-![200313_02](http://burakpehlivan.org/wp-content/uploads/2012/12/200313_02.jpg)
+![200313_02](https://burakpehlivan.org/wp-content/uploads/2012/12/200313_02.jpg)
 
 Baharın gelmesi farklı ülkelerde ayrı isimlerle ama hemen hemen aynı  tarihlerde kutlanıyor. Hintliler zorlu kış koşullarının geride kaldığı, doğanın  canlandığı, bitkilerin çiçek açtığı ve tüm bunlara paralel insanoğlunun içindeki  yaşama sevincinin artmasının başlangıcı olan baharın gelişini Renk Bayramı  adıyla kutlarken, İrlandalılar bu bayramı Aziz Patrick Günü olarak  isimlendiriyorlar. Haftasonu katıldığım Kiev’deki Nevruz Programı’nda, konuşma  yapan Türkmenistan Büyükelçisi’nin işaret ettiği gibi Türki ve Farsi topluluklar  ise bu önemli günü Nevruz Bayramı adıyla kutluyorlar. Nevruz her ne kadar  Anadolu Türkler’i arasında yaygın bir kutlama geleneğine sahip değilse de bu  bayram Orta Asya ve özellikle Azerbaycan Türkleri arasında özel bir öneme sahip.
 

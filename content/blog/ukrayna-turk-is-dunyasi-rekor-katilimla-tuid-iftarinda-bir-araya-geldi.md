@@ -6,7 +6,7 @@ tags: ["Belkıs Gürsel Güleç", "Berat Yıldız", "Brian Bonner", "Cem Murat A
 type: post
 ---
 
-[![IMG_2514](http://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2514.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2514.jpg)
+[![IMG_2514](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2514.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2514.jpg)
 
 Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) 2015 yılı iftarı, Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel’in de teşrifleriyle Kiev’de gerçekleşti. TUİD yönetim kurulu başkanı Cem Murat Aytaç’ın ev sahipliğindeki organizasyona TUİD yönetim kurulu üyeleri, TİKA Ukrayna program koordinatörü Hacı Bayram Bolat, Büyükelçilik müsteşarları Özgün Talu ve Emre Manav, Ukrayna Sanayi ve Ticaret Odası Başkanvekili Valeri Korol, T.C. Kiev Ticaret müşaviri Belkıs Gürsel Güleç, T.C. Kiev Kültür müşaviri Berat Yıldız, T.C. Kiev askeri ataşesi Dz. Kur. Albay Mustafa Aslan, Avrupa Üniversitesi rektör vekili Elena Timoşenko ile THY Ukrayna Genel müdürü Hakan Yılmaz’ın da aralarında bulunduğu çok sayıda davetli katılım gösterdi. Türk işadamlarının geniş ilgisi gözden kaçmazken, gecede Doğu Avrupa’nın en başarılı gazetesi seçilen Kyiv Post’un Amerikalı genel yayın yönetmeni Brian Bonner, ülkenin prestijli iş-ekonomi dergisi Business Ukraine’in sahibi İngiliz gazeteci Peter Dickinson, El Cezire Ukrayna muhabiri Deniz Berktay ile Ukrayna’daki genç ve başarılı Türk gazeteciler Sonat Kerem ve Serkan Bağ’ın da aralarında bulunduğu basın mensupları da hazır bulundu.
 
@@ -22,11 +22,11 @@ Ukrayna’da en bilinen Türk markası olan Colin’s ana sponsorluğunda Kiev M
 
  
 
-[![buyukelci](http://burakpehlivan.org/wp-content/uploads/2015/07/buyukelci.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/buyukelci.jpg)
+[![buyukelci](https://burakpehlivan.org/wp-content/uploads/2015/07/buyukelci.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/buyukelci.jpg)
 
-[![baskan](http://burakpehlivan.org/wp-content/uploads/2015/07/baskan.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/baskan.jpg)
+[![baskan](https://burakpehlivan.org/wp-content/uploads/2015/07/baskan.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/baskan.jpg)
 
-[![bpehlivan](http://burakpehlivan.org/wp-content/uploads/2015/07/bpehlivan.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/bpehlivan.jpg)
+[![bpehlivan](https://burakpehlivan.org/wp-content/uploads/2015/07/bpehlivan.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/bpehlivan.jpg)
 
 ![IMG_2580](http://tuid.org.ua/wp-content/uploads/2015/07/IMG_2580.jpg)
 

@@ -6,7 +6,7 @@ tags: ["Anadolu Ajansı", "Astelit", "Burak Pehlivan", "Ekonomi", "LIFE", "şirk
 type: post
 ---
 
-[![Ukrain-Flag](http://burakpehlivan.org/wp-content/uploads/2015/04/Ukrain-Flag.png)](http://burakpehlivan.org/wp-content/uploads/2015/04/Ukrain-Flag.png)
+[![Ukrain-Flag](https://burakpehlivan.org/wp-content/uploads/2015/04/Ukrain-Flag.png)](https://burakpehlivan.org/wp-content/uploads/2015/04/Ukrain-Flag.png)
 **Türk şirketleri Ukrayna'daki kaosa rağmen yatırımlarını sürdürüyor**
 
 Türk Ukrayna İşadamları Derneği (TUİD) Başkanvekili Burak Pehlivan, Ukrayna'da küresel şirketlerin geri adımlarına rağmen Türk firmaların yatırımlarına devam ettiğini belirterek, "Bayrak taşıyıcı havayolu şirketimiz THY, 13 yıldır uluslararası uçuş gerçekleşmeyen Ukrayna’nın Herson şehrine İstanbul'dan sefer başlattı THY, Ukrayna'daki şirketleri dünyaya, dünyayı ise Ukrayna'ya bağlıyor" dedi.

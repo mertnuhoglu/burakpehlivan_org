@@ -6,7 +6,7 @@ tags: ["ali bulut", "Ekonomi", "Haydar Koçak", "hayvancılık", "konuk yazar", 
 type: post
 ---
 
-![tarim](http://burakpehlivan.org/wp-content/uploads/2016/12/tarim.jpg)Kişisel bloğumda zaman zaman konuk yazarların çalışmalarını paylaşıyorum. Bu sefer,  Türkiye Cumhuriyeti Kiev Ticaret müşaviri Haydar Koçak'ın Ukrayna'daki tarım ve hayvancılık sektörüne ilişkin ayrıntılı raporuna yer veriyorum.  Geçmiş dönemlerde Ukrayna ile ilgili Türkçe ülke raporu bile bulmakta zorluk çekerdik. Bugün ise Koçak, ekonomi bakanlığındaki 30 yılı bulan deneyim ve birikimini, hiç bitmeyen enerjisiyle birleştirerek Ukrayna'daki farklı sektörlere ilişkin kaleme aldığı raporlarla önemli bir eksikliği gideriyor ve farklı bir ticaret müşaviri profili çiziyor. Bu vesileyle kendisine teşekkür ediyorum.
+![tarim](https://burakpehlivan.org/wp-content/uploads/2016/12/tarim.jpg)Kişisel bloğumda zaman zaman konuk yazarların çalışmalarını paylaşıyorum. Bu sefer,  Türkiye Cumhuriyeti Kiev Ticaret müşaviri Haydar Koçak'ın Ukrayna'daki tarım ve hayvancılık sektörüne ilişkin ayrıntılı raporuna yer veriyorum.  Geçmiş dönemlerde Ukrayna ile ilgili Türkçe ülke raporu bile bulmakta zorluk çekerdik. Bugün ise Koçak, ekonomi bakanlığındaki 30 yılı bulan deneyim ve birikimini, hiç bitmeyen enerjisiyle birleştirerek Ukrayna'daki farklı sektörlere ilişkin kaleme aldığı raporlarla önemli bir eksikliği gideriyor ve farklı bir ticaret müşaviri profili çiziyor. Bu vesileyle kendisine teşekkür ediyorum.
 
 **Ukrayna Tarım ve Hayvancılık Sektörü Raporu**
 
@@ -1784,7 +1784,7 @@ Ukrayna  Devlet İstatistik Servisi,
 
  
 
-![dscn01671](http://burakpehlivan.org/wp-content/uploads/2016/12/DSCN01671-2.jpg)**Haydar Koçak Kimdir?: ** 2015 yılının temmuz ayından beri Türkiye Cumhuriyeti Kiev Ticaret Müşavirliği görevini sürdüren Haydar Koçak, Türkiye Cumhuriyeti Ekonomi Bakanlığı'nda ithalat genel müdürlüğü başta olmak üzere birçok farklı bölümde uzman olarak görev yapmıştır. Hırvatistan ve Kosava'da ticaret müşavirliği görevlerinde de bulunan Koçak, kariyeri boyunca çok sayıda sektör ve ülke raporu kaleme almıştır.
+![dscn01671](https://burakpehlivan.org/wp-content/uploads/2016/12/DSCN01671-2.jpg)**Haydar Koçak Kimdir?: ** 2015 yılının temmuz ayından beri Türkiye Cumhuriyeti Kiev Ticaret Müşavirliği görevini sürdüren Haydar Koçak, Türkiye Cumhuriyeti Ekonomi Bakanlığı'nda ithalat genel müdürlüğü başta olmak üzere birçok farklı bölümde uzman olarak görev yapmıştır. Hırvatistan ve Kosava'da ticaret müşavirliği görevlerinde de bulunan Koçak, kariyeri boyunca çok sayıda sektör ve ülke raporu kaleme almıştır.
 
  
 

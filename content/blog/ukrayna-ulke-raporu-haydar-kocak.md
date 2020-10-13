@@ -6,7 +6,7 @@ tags: ["Ekonomi", "ekonomi", "Genel", "Haydar Koçak", "Kiev Ticaret Müşavirli
 type: post
 ---
 
-**![](http://burakpehlivan.org/wp-content/uploads/2018/07/Ekran-Resmi-2018-07-16-12.22.42.png)**
+**![](https://burakpehlivan.org/wp-content/uploads/2018/07/Ekran-Resmi-2018-07-16-12.22.42.png)**
 
 [BÖLÜM I 4](#_Toc517866200)
 
@@ -15033,7 +15033,7 @@ Kaynak: Türkiye Cumhuriyeti Kiev Ticaret Müşavirliği
 
 **Haydar KOÇAK**
 
-![dscn01671](http://burakpehlivan.org/wp-content/uploads/2017/01/DSCN01671.jpg)
+![dscn01671](https://burakpehlivan.org/wp-content/uploads/2017/01/DSCN01671.jpg)
 
 **Türkiye Cumhuriyeti Kiev Ticaret Müşaviri**
 

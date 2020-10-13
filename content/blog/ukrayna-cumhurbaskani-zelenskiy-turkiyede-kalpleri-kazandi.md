@@ -8,7 +8,7 @@ type: post
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/08/111.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/08/111.jpg)
 
 Ukrayna Cumhurbaşkanı Volodymyr Zelenksiy  milletvekilliği genel seçimlerinde elde ettiği tarihi başarıdan sonraki ilk resmi ziyaretini geçtiğimiz haftaya Türkiye’ye gerçekleştirirken, gezi, kısa bir süre önce planlanmasına rağmen iki günlük ziyaretin siyasi ve ekonomik gündemi yoğun, beklentiler çok yüksekti. Türkiye Ukrayna Serbest Ticaret Antlaşması, enerji, tarım ve imalat sanayinde Ukrayna’ya daha çok Türk yatırımının çekilmesi, Ukrayna’nın hızla ihtiyaç duyduğu altyapı yatırımlarına Türk firmalarının katkısı ve savunma sanayindeki işbirliğinin çeşitlendirilip, artırılması ziyaretin özellikle ekonomi gündemini derinleştirmişti.
 

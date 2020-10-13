@@ -6,7 +6,7 @@ tags: ["Dünya Gazetesi", "Ekonomi", "ekonomi", "reform", "TUİD (Türk Ukrayna 
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-23.01.37.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-23.01.37.png)
 
 Dünya gazetesinin Ukrayna özel sayısı için kaleme aldığım makalede, Ukrayna ekonomisinin güncel durumunu ve ülkede gerçekleştirilen yapısal reformlar sonrasında Türk firmaları için oluşan yatırım fırsatlarını ayrıntısıyla dile getirmeye çalıştım.
 

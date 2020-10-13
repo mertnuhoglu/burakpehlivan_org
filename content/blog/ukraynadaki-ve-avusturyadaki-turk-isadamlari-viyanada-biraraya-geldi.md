@@ -6,7 +6,7 @@ tags: ["Avusturya", "MÜSİAD Avusturya", "TUİD", "TUİD (Türk Ukrayna İşada
 type: post
 ---
 
-[![fotoğrafm](http://burakpehlivan.org/wp-content/uploads/2013/09/fotoğrafm.jpg)](http://burakpehlivan.org/1902/ukraynadaki-ve-avusturyadaki-turk-isadamlari-viyanada-biraraya-geldi/fotografm/)
+[![fotoğrafm](https://burakpehlivan.org/wp-content/uploads/2013/09/fotoğrafm.jpg)](https://burakpehlivan.org/1902/ukraynadaki-ve-avusturyadaki-turk-isadamlari-viyanada-biraraya-geldi/fotografm/)
 
 Avusturya’nın başkenti Viyana'da temaslarda bulunan, Türk Ukrayna İşadamları Derneği (TUİD) heyeti, TÜMSİAD Avusturya ve MÜSİAD Avusturya derneklerini ziyaret etti.
 
@@ -33,6 +33,6 @@ TUİD Başkanvekili Burak Pehlivan, İstanbul Temsilcisi Mehmet Seyfettin Küç�
 Kaynak: http://www.bugun.com.tr/son-dakika/tuid-avusturyadaki-turk-isadami--haberi/806992
 http://www.zaman.com.tr/gundem\_tuid-avusturyadaki-turk-isadami-derneklerini-ziyaret-etti\_2142626.html
 
-[![fotoğraf](http://burakpehlivan.org/wp-content/uploads/2013/09/fotoğraf.jpg)](http://burakpehlivan.org/1902/ukraynadaki-ve-avusturyadaki-turk-isadamlari-viyanada-biraraya-geldi/fotograf/)
+[![fotoğraf](https://burakpehlivan.org/wp-content/uploads/2013/09/fotoğraf.jpg)](https://burakpehlivan.org/1902/ukraynadaki-ve-avusturyadaki-turk-isadamlari-viyanada-biraraya-geldi/fotograf/)
 
-[![fotoğraf3](http://burakpehlivan.org/wp-content/uploads/2013/09/fotoğraf3.jpg)](http://burakpehlivan.org/1902/ukraynadaki-ve-avusturyadaki-turk-isadamlari-viyanada-biraraya-geldi/fotograf3/)
+[![fotoğraf3](https://burakpehlivan.org/wp-content/uploads/2013/09/fotoğraf3.jpg)](https://burakpehlivan.org/1902/ukraynadaki-ve-avusturyadaki-turk-isadamlari-viyanada-biraraya-geldi/fotograf3/)

@@ -6,7 +6,7 @@ tags: ["EBRD Şevki Acuner", "EBRD Ukraine", "EBRD Ukrayna", "Genel", "Hacı Bay
 type: post
 ---
 
-[![IMG_9728](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_97281.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_97281.jpg)
+[![IMG_9728](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_97281.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_97281.jpg)
 
 **Ukrayna ekonomisinde 2016 yılı beklentilerini Şevki Acuner, TUİD’de değerlendirdi**
 
@@ -24,6 +24,6 @@ TUİD başkanvekili Burak Pehlivan ve Türkiye Cumhuriyeti Kiev Ticaret Müşavi
 
 
 
-[![IMG_9793](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9793.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9793.jpg)
-[![IMG_9712](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9712.jpg)![IMG_9702](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9702.jpg)![IMG_9747](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9747.jpg)![IMG_9759](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9759.jpg)![IMG_9776](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9776.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9776.jpg)
-[![IMG_9772](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9772.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9772.jpg)[![IMG_9771](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9771.jpg)![IMG_9821](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9821.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9771.jpg)
+[![IMG_9793](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9793.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9793.jpg)
+[![IMG_9712](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9712.jpg)![IMG_9702](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9702.jpg)![IMG_9747](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9747.jpg)![IMG_9759](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9759.jpg)![IMG_9776](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9776.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9776.jpg)
+[![IMG_9772](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9772.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9772.jpg)[![IMG_9771](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9771.jpg)![IMG_9821](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9821.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9771.jpg)

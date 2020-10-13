@@ -8,11 +8,11 @@ type: post
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/09/WhatsApp-Image-2019-09-02-at-00.17.25.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/09/WhatsApp-Image-2019-09-02-at-00.17.25.jpeg)
 
  
 
-**![](http://burakpehlivan.org/wp-content/uploads/2019/09/Screenshot_2.png)**
+**![](https://burakpehlivan.org/wp-content/uploads/2019/09/Screenshot_2.png)**
 
 [BÖLÜM I 4](#_Toc17270907)
 
@@ -14589,7 +14589,7 @@ Muhtelif Uluslararası Kuruluşların Toplantılarında Elde Edilen Bilgiler
 
 **Haydar KOÇAK**
 
-![dscn01671](http://burakpehlivan.org/wp-content/uploads/2017/01/DSCN01671.jpg)
+![dscn01671](https://burakpehlivan.org/wp-content/uploads/2017/01/DSCN01671.jpg)
 
 **Türkiye Cumhuriyeti Kiev Ticaret Müşaviri**
 

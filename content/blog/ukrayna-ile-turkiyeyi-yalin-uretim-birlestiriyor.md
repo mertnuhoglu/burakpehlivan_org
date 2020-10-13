@@ -6,7 +6,7 @@ tags: ["bilgi işlem", "Cevdet Özdoğan", "Ekonomi", "konferans", "TUİD (Türk
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/Screen-Shot-2017-08-27-at-00.10.19.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/Screen-Shot-2017-08-27-at-00.10.19.png)
 
 
 
@@ -36,6 +36,6 @@ Ukrayna’da yalın üretimin, Türkiye ile ilgisine gelince. Ukrayna Yalın Ens
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/20369569_124068864874555_3384436788681305598_o.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/20369569_124068864874555_3384436788681305598_o.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/20369540_124067924874649_7166601458838271440_o.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/20369540_124067924874649_7166601458838271440_o.jpg)

@@ -6,7 +6,7 @@ tags: ["Ahmet Ürkmezgil", "Can Sirman", "Dinamo Kiev", "Fikret Orman", "Igor Su
 type: post
 ---
 
-[![3](http://burakpehlivan.org/wp-content/uploads/2014/06/3.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/06/3.jpg)
+[![3](https://burakpehlivan.org/wp-content/uploads/2014/06/3.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/06/3.jpg)
 
 Ukrayna Beşiktaşlılar Derneği yöneticileri, Beşiktaş Başkanı Fikret Orman'ı makamında ziyaret etti.
 Orman, Ukrayna Beşiktaşlılar Derneği Başkanı Burak Pehlivan'ın yanı sıra, derneğin yönetim kurulu üyeleri Can Sirman ve Zaferhan Kılıç'ın da yer aldığı heyeti kabul etti. Görüşmede Beşiktaş Muhasip Üyesi Ahmet Ürkmezgil de hazır bulundu.
@@ -23,6 +23,6 @@ http://www.milliyet.com.tr/ukrayna-besiktaslilar-dernegi-nden-fikret-istanbul-ye
 http://spor.haber3.com/fikret-ormana-surpriz-ziyaret-2337682h.htm
 http://www.fanatik.com.tr/2014/06/19/baskan-ormana-ukraynadan-ziyaret-374311
 
-[![2](http://burakpehlivan.org/wp-content/uploads/2014/06/2.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/06/2.jpg)
+[![2](https://burakpehlivan.org/wp-content/uploads/2014/06/2.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/06/2.jpg)
 
-[![4](http://burakpehlivan.org/wp-content/uploads/2014/06/4.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/06/4.jpg)
+[![4](https://burakpehlivan.org/wp-content/uploads/2014/06/4.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/06/4.jpg)

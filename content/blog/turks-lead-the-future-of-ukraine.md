@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "Ekonomi", "Engin Akçakoca", "English", "English Articl
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-00.43.42-1.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-00.43.42-1.png)
 
 Turkish investments in Ukraine total around $2.5 billion and Turkish executives lead the public and private sectors in the country
 
@@ -40,5 +40,5 @@ Global companies such as Coca-Cola, Pfizer, Hilton, Colgate, P&G, GSK, Unilever,
 
 KERIM ULKER/DÜNYA
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-03-at-21.25.35.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-03-at-21.25.35.png)
 

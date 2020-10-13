@@ -6,7 +6,7 @@ tags: ["Batı Ukrayna", "Erhan Yüksel", "Fatih Aydın", "Glory Kafe Lviv", "ift
 type: post
 ---
 
-[![IMG_0706](http://burakpehlivan.org/wp-content/uploads/2016/06/IMG_0706.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/06/IMG_0706.jpg)
+[![IMG_0706](https://burakpehlivan.org/wp-content/uploads/2016/06/IMG_0706.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/06/IMG_0706.jpg)
 
 
 

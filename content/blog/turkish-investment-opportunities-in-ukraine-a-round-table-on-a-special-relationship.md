@@ -9,7 +9,7 @@ type: post
 > 
 
 > 
-> ![](http://burakpehlivan.org/wp-content/uploads/2017/01/IMG_4625.jpg)
+> ![](https://burakpehlivan.org/wp-content/uploads/2017/01/IMG_4625.jpg)
 > 
 > 
 

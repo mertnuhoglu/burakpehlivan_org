@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Doğu Avrupa", "Ekonomi", "istanbul", "İstanbul Erkek
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/05/bp-1024x591.png)
+![](https://burakpehlivan.org/wp-content/uploads/2019/05/bp-1024x591.png)
 
 IELMUN, 1884 yılında eğitim hayatına başlayan, Türkiye'de lise ismini alan ilk eğitim kurumu olan, ilk öğrenci tiyatrosunun oynandığı, Türkiye'de ilk Almanca eğitimi verilen,  ilk sinema gösterimi yapılan, ilk okul gazetesinin çıkarıldığı İstanbul Erkek Lisesi'nin öğrencileri tarafından, lise ve üniversite öğrencileri için düzenlenen bir Model Birleşmiş Milletler Konferansı. Bu konferansta katılımcılar, delege, büyükelçi, sekreterya üyesi veya gazeteci rollerini üstlenerek bir Birleşmiş Milletler simülasyonu gerçekleştiriyorlar.
 

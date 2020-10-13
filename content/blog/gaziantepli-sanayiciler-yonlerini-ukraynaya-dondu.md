@@ -6,7 +6,7 @@ tags: ["ali bulut", "Gaziantep", "Gaziantep Ticaret Odası", "Genel", "Halil Ko�
 type: post
 ---
 
-[![IMG_9650](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9650.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9650.jpg)
+[![IMG_9650](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9650.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9650.jpg)
 
 Ukrayna’ya bir çalışma ziyareti gerçekleştiren, Gaziantep Ticaret Odası heyeti, Türk Ukrayna İşadamları Derneği(TUİD) genel merkezine bir nezaket ziyareti gerçekleştirdi. Ziyarette Ukrayna’nın içinde bulunduğu son ekonomik durum değerlendirilirken,  iki kurum arasındaki işbirliği olanakları da konuşuldu.
 
@@ -28,4 +28,4 @@ Gaziantep Ticaret Odası heyetinin, TUİD genel merkezine yaptığı çalışma 
 
 
 
-![IMG_9621](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9621.jpg)![IMG_9578](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9578.jpg)![IMG_9573](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9573.jpg)[![IMG_9658](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9658.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9658.jpg) ![IMG_9635](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9635.jpg)![IMG_9648](http://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9648.jpg)
+![IMG_9621](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9621.jpg)![IMG_9578](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9578.jpg)![IMG_9573](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9573.jpg)[![IMG_9658](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9658.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9658.jpg) ![IMG_9635](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9635.jpg)![IMG_9648](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9648.jpg)

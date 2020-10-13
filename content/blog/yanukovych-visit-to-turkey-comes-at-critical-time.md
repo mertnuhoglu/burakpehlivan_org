@@ -6,7 +6,7 @@ tags: ["Airlines in Ukraine", "Dış Ticaret", "Ekonomi", "erdogan", "Politika",
 type: post
 ---
 
-[![TURKEY-UKRAINE-DIPLOMACY](http://burakpehlivan.org/wp-content/uploads/2013/10/yanukovych-visit-to-turkey-comes-at-critical-time.jpg)](http://burakpehlivan.org/1945/yanukovych-visit-to-turkey-comes-at-critical-time/turkey-ukraine-diplomacy/)
+[![TURKEY-UKRAINE-DIPLOMACY](https://burakpehlivan.org/wp-content/uploads/2013/10/yanukovych-visit-to-turkey-comes-at-critical-time.jpg)](https://burakpehlivan.org/1945/yanukovych-visit-to-turkey-comes-at-critical-time/turkey-ukraine-diplomacy/)
 This week is an important one for Ukraine and Turkey. President Victor Yanukovych met with Turkish President Abdullah Gul and Prime Minister Recep Tayyip Erdogan in Ankara on Oct. 9.
 
 The meeting agenda included a road map to bilateral relations of the two nations in the near future. One of the most important items on the agenda is a free trade agreement that Ukraine and Turkey have been quietly discussing for two years. Both sides will deepen economic ties if they reach an agreement on the details.

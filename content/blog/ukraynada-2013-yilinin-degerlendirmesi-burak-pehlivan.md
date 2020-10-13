@@ -6,11 +6,11 @@ tags: ["2013 ukrayna ekonomisi", "Avrupa Meydanı", "bankacılık sektörü", "D
 type: post
 ---
 
-[![ukraynada-2013-yilinin-degerlendirmesi-burak-pehlivan](http://burakpehlivan.org/wp-content/uploads/2014/02/ukraynada-2013-yilinin-degerlendirmesi-burak-pehlivan.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/ukraynada-2013-yilinin-degerlendirmesi-burak-pehlivan.jpg)
+[![ukraynada-2013-yilinin-degerlendirmesi-burak-pehlivan](https://burakpehlivan.org/wp-content/uploads/2014/02/ukraynada-2013-yilinin-degerlendirmesi-burak-pehlivan.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/ukraynada-2013-yilinin-degerlendirmesi-burak-pehlivan.jpg)
 
 Ukrayna’da gündem hızla değişiyor. Haber sitelerine düşen iktidar ile muhalefet anlaştı haberinin üzerinden birkaç saat geçmeden, aslında anlaşmanın olmadığna dair yeni bir haber giriliyor, hem de daha ilk haber manşetteyken. Böyle bir ortamda değil bir yıllık perspektifi değerlendirmek birkaç hafta, hatta birkaç gün sonrasını tahmin etmek bile zor. Aslında bu yazıyı kaleme alırken 2014 yılında Ukrayna’da ne olacağını yazmayı planlıyordum, ancak bunu yapmadan önce, 2013 yılını değerlendirmek daha doğru olacak. Bir sonraki yazıda ise 2014 yılında ülkeyi beklenen senaryoları birlikte değerlendireceğiz. Açıkçası bu makale, bir sonraki makalenin hazırlık yazısı olarak da görülebilir.
 
-[![800px-Ukraine_economy](http://burakpehlivan.org/wp-content/uploads/2014/02/800px-Ukraine_economy.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/800px-Ukraine_economy.jpg)
+[![800px-Ukraine_economy](https://burakpehlivan.org/wp-content/uploads/2014/02/800px-Ukraine_economy.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/800px-Ukraine_economy.jpg)
 
 
 Ukrayna, 2 yıldır büyüyemiyor
@@ -23,7 +23,7 @@ Ukrayna’da geçtiğimiz yılı analiz ederken, önce makrolara bir gözatalım
 
 2013 yılnın çok dikkat çeken bir olayı ise ülkenin ekonomik ve siyasi olarak başarılı bir yıl geçirmemesine rağmen, Dünya Bankası İş Yapma Kolaylığı Endeksi’nde ülkenin ölçülen 189 ülke arasında en iyi performansı sergileyerek, bir yılda 28 basamak yükselip 112. sıraya yerleşmesi oldu.
 
-[![bankovka - peníze - euro - banka](http://burakpehlivan.org/wp-content/uploads/2014/02/banka_resim.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/banka_resim.jpg)
+[![bankovka - peníze - euro - banka](https://burakpehlivan.org/wp-content/uploads/2014/02/banka_resim.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/banka_resim.jpg)
 
 
 Bankacılık sektöründe toparlanma var ama karlılık çok düşük
@@ -33,7 +33,7 @@ Bankacılık sektöründe toparlanma var ama karlılık çok düşük
 Ukrayna’da bankacılık sektörü henüz toparlanabilmiş değil. S&P’a göre Ukrayna’da bankacılık sistemindeki sorunlu kredi oranı %40’lar seviyesinde, bu inanılmaz yüksek bir rakam. 2011 yılındaki 7,7 milyar grivnalık zararın ardından, 2012 yılında 4,9 milyar grivna, geçtiğimiz yıl ise ancak 2,5 milyar grivna kar elde edilebildi. Avrupa sermayeli bankalardan pazarı terk etme imkanı olanlar, pazardan hızla çıkıyorlar en son İtalyanlar Praveksbank’ı sattılar. Bankacılık sektörü dirilmeden piyasanın hareketlenmesi, ev, araba satışlarının artması, üretim tesislerinin ciddi yatırımlara girmesi çok zor. Rus sermayesini bankacılık sektöründeki etkisini ve pazar payını 2013’te de artırdı. Olumlu bir gelişme yılın tamamında bankalara güven arttı ve bireysel hesaplarda 70 milyar grivnalık bir büyüme gerçekeşti.
 
 
-[![enerji](http://burakpehlivan.org/wp-content/uploads/2014/02/enerji.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/enerji.jpg)
+[![enerji](https://burakpehlivan.org/wp-content/uploads/2014/02/enerji.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/enerji.jpg)
 -------------------------------------------------------------------------------------------------------------------------------------------
 
 
@@ -47,7 +47,7 @@ Ukrayna enerjide Türkiye gibi dışa bağımlı bir ülke. Ülkenin yıllık 50
 
 Geçtiğimiz yıl önemli bir adım atılıdı ve Royal Dutch Shell ve Chevron ile kayagazı çıkarım ve paylaşım antlaşmaları imzalandı. Fizibiliteler neticesinde 3 ila 6 yıl içerisinde üretime geçilmesi planlanıyor. Karadeniz çanağında ise petrol ve doğalgaz araması için İtalyan ENI ve Fransız EDF ile antlaşmalar yapıldı. Benzer bir antlaşma da Exxon Mobil’in öncülüğündeki bir konsorsiyum ile imzalandı. Ukrayna, işler yolunda giderse 2018 yılında enerjide kendi kendine yetebilen bir ülke haline gelecektir. Yılın enerji sektöründeki sürpiz ise Rusya’nın 2013 sonlanmadan doğalgazda sağladığı %33’lük indirim oldu. Bu indirim 2014’ün tamamına yayılılabilirse, ülke hazinesi 2-3 milyar dolar tasarrufa gitmiş olacak. Rüzgar başta olmak üzere yenilebilir enerji alanında yatırımlar ise yavaş gitmekle birlikte devam ediyor.
 
-[![tarimsal-ihracat-hizla-yukseliyor-3980072_5044_o_1](http://burakpehlivan.org/wp-content/uploads/2014/02/tarimsal-ihracat-hizla-yukseliyor-3980072_5044_o_1.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/tarimsal-ihracat-hizla-yukseliyor-3980072_5044_o_1.jpg)
+[![tarimsal-ihracat-hizla-yukseliyor-3980072_5044_o_1](https://burakpehlivan.org/wp-content/uploads/2014/02/tarimsal-ihracat-hizla-yukseliyor-3980072_5044_o_1.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/tarimsal-ihracat-hizla-yukseliyor-3980072_5044_o_1.jpg)
 
 
 Ukrayna’da tarım ekonominin yüzakı
@@ -59,7 +59,7 @@ Tarım birkaç yıldır Ukrayna ekonomisinin dinamosu olmuş durumda. Ekonomik o
 Geçtiğimiz yıl Ukrayna bağımsızlık tarihinin tahıl hasadı rekoru kırılırken yaklaşık 60 milyon ton tahıl elde edildi. Ülke özellikle Çin ile yapılan sözleşmeyle, Arjantin’i geçerek dünyanın en büyük 3. mısır ihracatçısı haline geldi. Ayçiçek ve ayçiçek yağı ihracatında dünya birinciliği korunurken,buğday, arpa ihracatında da ülke önemli bir oyuncu. Tarım ve gıda ürünleri ihracatı 20 milyar dolar seviyesinde.
 
 
-[![1O5UC0NUzun-Vadeli-Yatırım-Araçları-Nelerdir-Kredim.gen_.tr_](http://burakpehlivan.org/wp-content/uploads/2014/02/1O5UC0NUzun-Vadeli-Yatırım-Araçları-Nelerdir-Kredim.gen_.tr_.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/1O5UC0NUzun-Vadeli-Yatırım-Araçları-Nelerdir-Kredim.gen_.tr_.jpg)
+[![1O5UC0NUzun-Vadeli-Yatırım-Araçları-Nelerdir-Kredim.gen_.tr_](https://burakpehlivan.org/wp-content/uploads/2014/02/1O5UC0NUzun-Vadeli-Yatırım-Araçları-Nelerdir-Kredim.gen_.tr_.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/1O5UC0NUzun-Vadeli-Yatırım-Araçları-Nelerdir-Kredim.gen_.tr_.jpg)
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
@@ -76,7 +76,7 @@ Döviz rezervlerinde erime devam ederken, Rusya ile antlaşma imzalandı
 ---------------------------------------------------------------------
 
 
-[![944887](http://burakpehlivan.org/wp-content/uploads/2014/02/944887.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/944887.jpg)
+[![944887](https://burakpehlivan.org/wp-content/uploads/2014/02/944887.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/944887.jpg)
 
 Siyaseten baktığımızda 2013 yılının son döneminin Avrupa ile entegrasyonu savunan Meydan protestolarının gölgesinde geçtiğine ve parlamentonun çalışmakta ve yasa yapmakta zorlandığı bir dönemi görüyoruz. Hükümet AB’nin Vilnius’ta gerçekleşen Doğu Ortaklığı Zirvesi’ne 10 gün kalana kadar AB ile Ortaklık antlaşmasının imzalanacağına dair kamuoyunu hazırlamıştı ancak son anda ortaklık görüşmeleri durduruldu ve Rusya ile bir işbirliği antlaşması imzalandı.
 

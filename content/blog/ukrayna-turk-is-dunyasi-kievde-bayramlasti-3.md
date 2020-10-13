@@ -6,7 +6,7 @@ tags: ["Ramazan Bayramı Kiev", "TUİD", "TUİD (Türk Ukrayna İşadamları Der
 type: post
 ---
 
-[![DSC_7395](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_73951.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_73951.jpg)
+[![DSC_7395](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_73951.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_73951.jpg)
 
 Ukrayna’daki Türk işadamları ve Türk profesyonelleri Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel’in de teşrifleriyle Uluslararası Türk Ukrayna İşadamları Derneği’nin(TUİD) Kiev’deki genel merkezinde bir araya gelerek bayramlaştı.
 
@@ -18,30 +18,30 @@ TUİD’in geleneksel Ramazan Bayramlaşmasında Türk ve Ukraynalı konuklara T
 
 Kaynak: www.tuid.org.ua
 
-![DSC_7318](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7318.jpg)![DSC_7360](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7360.jpg)
+![DSC_7318](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7318.jpg)![DSC_7360](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7360.jpg)
 
-[![DSC_7287](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7287.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7287.jpg)
+[![DSC_7287](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7287.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7287.jpg)
 
-[![DSC_7304](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7304.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7304.jpg)
+[![DSC_7304](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7304.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7304.jpg)
 
-[![DSC_7310](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7310.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7310.jpg)
+[![DSC_7310](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7310.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7310.jpg)
 
-[![DSC_7159](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7159.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7159.jpg)
+[![DSC_7159](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7159.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7159.jpg)
 
-[![DSC_7165](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7165.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7165.jpg)
+[![DSC_7165](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7165.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7165.jpg)
 
-[![DSC_7166](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7166.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7166.jpg)
+[![DSC_7166](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7166.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7166.jpg)
 
-[![DSC_7178](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7178.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7178.jpg)
+[![DSC_7178](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7178.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7178.jpg)
 
-[![DSC_7181](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7181.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7181.jpg)
+[![DSC_7181](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7181.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7181.jpg)
 
-[![DSC_7184](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7184.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7184.jpg)
+[![DSC_7184](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7184.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7184.jpg)
 
-[![DSC_7190](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7190.jpg)![DSC_7202](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7202.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7190.jpg)
+[![DSC_7190](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7190.jpg)![DSC_7202](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7202.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7190.jpg)
 
-[![DSC_7192](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7192.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7192.jpg)
+[![DSC_7192](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7192.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7192.jpg)
 
-[![DSC_7194](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7194.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7194.jpg)
+[![DSC_7194](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7194.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7194.jpg)
 
-[![DSC_7198](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7198.jpg)![DSC_7204](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7204.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7198.jpg)
+[![DSC_7198](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7198.jpg)![DSC_7204](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7204.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/07/DSC_7198.jpg)

@@ -6,7 +6,7 @@ tags: ["Can Sirman", "Dinamo Kiev", "Emre Manav", "erhan çimen", "Erman Mendire
 type: post
 ---
 
-[![DSCN8068](http://burakpehlivan.org/wp-content/uploads/2014/06/DSCN8068.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/06/DSCN8068.jpg)
+[![DSCN8068](https://burakpehlivan.org/wp-content/uploads/2014/06/DSCN8068.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/06/DSCN8068.jpg)
 Ukrayna Beşiktaşlılar Derneği’nin temsilen bir heyet, Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Сan Tezel’e bir hoşgeldiniz ve nezaket ziyareti düzenledi. Heyette, Başkan Burak Pehlivan’ın yanı sıra, Can Sirman(Berke Plastik), Erman Mendirek(Credit Europe), Volkan Peker(Colin’s) ve Erhan Çimen(TUİD) yer alırken, görüşmede büyükelçilik müsteşarı Emre Manav da hazır bulundu. 
 
 

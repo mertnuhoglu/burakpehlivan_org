@@ -6,7 +6,7 @@ tags: ["Ali Aliyev", "atu", "Evren Müderrisoğlu", "Kiev'de İftar", "TUİD (T�
 type: post
 ---
 
-[![DSCN9099](http://burakpehlivan.org/wp-content/uploads/2014/07/DSCN9099.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/07/DSCN9099.jpg)
+[![DSCN9099](https://burakpehlivan.org/wp-content/uploads/2014/07/DSCN9099.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/07/DSCN9099.jpg)
 Ukrayna’daki Azerbaycan ve Türkiye kökenli Türk işadamları başkent Kiev’de “Bakü Akşamları” restoranında gerçekleşen iftarda bir araya geldi. İftara T.C. Kiev Büyükelçiliği müsteşarı Evren Müderrisoğlu, iki ülkenin diplomatları, Ukrayna Azerbaycan Sanayici ve İşadamları Derneği(ATU) başkanı Ali Aliyev, TUİD üyeleri, Türk, Azerbaycanlı ve Ukraynalı işadamları, gazeteciler ve akademisyenler katıldı.
 
 Organizasyonun açılış konuşmasını yapan, T.C. Kiev büyükelçiliği müsteşarı Evren Müderrisoğlu, ATU’yu da Ukrayna’daki Türk işadamı derneklerinden farklı bir dernek olarak görmediklerinin belirtirken, bu gibi milli, manevi günlerde Türkler’in bir araya gelmesinin, birlik ve beraberlik içerisinde olmasının önemine dikkat çekti. Müderrisoğlu, Ukrayna’nın zor günler yaşadığını ancak bu günlerin gelip geçici olduğunu ifade ederken, ülkedeki Türk sermayesine güven ve inançlarını dile getirdi.

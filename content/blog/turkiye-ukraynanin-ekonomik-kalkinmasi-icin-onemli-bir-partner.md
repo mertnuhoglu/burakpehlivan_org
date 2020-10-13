@@ -6,7 +6,7 @@ tags: ["Ekonomi", "erdogan", "Poroşenko", "Poroshenko", "Türkiye Ukrayna Serbe
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/2067702.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/2067702.jpg)
 
 Türkiye Cumhuriyeti cumhurbaşkanı Recep Tayyip Erdoğan'ın beraberindeki on bakanla birlikte Ukrayna'ya yaptığı günübirlik resmi ziyaret öncesinde Kyiv Post gazetesi için bir yazı kaleme almıştım. Sekiz saat süren ziyarette iki ülke cumhurbaşkanı planlanan 45 dakikalılık görüşmenin ötesinde 3 saat görüşürken, stratejik partner olan Türkiye ve Ukrayna arasındaki 6. Yüksek düzeyli Stratejik İşbirliği Konseyine de, bakanların da katılımıyla başkanlık ettiler. Gezi öncesi yazdığım yazının Türkçesi'ni burada paylaşırken, yazının sonunda da başta Türkiye Ukrayna Serbest Ticaret Antlaşması olmak üzere, ziyaret sonrasının bir değerlendirmesine yer vermeye çalıştım.
 

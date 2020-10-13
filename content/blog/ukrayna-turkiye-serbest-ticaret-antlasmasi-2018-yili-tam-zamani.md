@@ -6,7 +6,7 @@ tags: ["Ekonomi", "Haydar Koçak", "Kerim Ülker", "TUİD (Türk Ukrayna İşada
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/01/Screen-Shot-2018-01-05-at-22.44.33.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/01/Screen-Shot-2018-01-05-at-22.44.33.png)
 
 
 Türkiye’nin 23 ülkeyle imzaladığı serbest ticaret anlaşması (STA) var. 21 tanesi de yürürlükte… Güney Amerika’dan Güneydoğu Asya’ya kadar geniş bir coğrafyada bu ülkeler.1997’de İsrail’le imzalamış bu anlaşmayı, 2007’de Suriye ile. Morityus, Faroe Adaları gibi haritada bulmakta zorlanacağımız yerler de var. Ancak nedense 2007’den bu yana Karadeniz’in karşı yakasındaki Ukrayna ile görüşmeler netlik kazanmış değil. 10 yıldır resmi kanallarda pek değişen bir durum da yok.

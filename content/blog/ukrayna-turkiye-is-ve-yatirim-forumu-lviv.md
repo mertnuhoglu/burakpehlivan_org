@@ -6,7 +6,7 @@ tags: ["Batı Ukrayna", "Dış Ticaret", "Ekonomi", "Fatih Aydın", "Lviv", "Onu
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/04/17991084_1878219409105570_8931161675060644702_n.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/17991084_1878219409105570_8931161675060644702_n.jpg)
 
 
 
@@ -18,7 +18,7 @@ Batı Ukrayna’nın tarihsel kültürel ve ticari başkenti Lviv’in nüfusu 7
 
 Türkiye açısından baktığımızda, Batı Ukrayna ve özelinde Lviv yalnızca ekonomik açıdan önem taşımıyor, kültürel ve tarihsel olarak da bu şehir ve coğrafya bizi Ukrayna ile birbirimize bağlıyor. Lviv ve çevresi 1. Dünya Savaşı’nda Osmanlı İmparatorluğu’nun savaştığı Galiçya Cephesi’ni oluştururken, bu cephede şehit düşen 8.000 Mehmetçiğimiz bu topraklarda yatıyor. Bölge, Dünyada Türkiye dışında en çok Türk şehitliği olan iki yerden biri. Nitekim geçtiğimiz yıl T.C. Kiev Büyükelçiliğimizin harika bir organizasyonuyla Genel Kurmay Başkanlığımızın Mehteran Bölüğü hem Lopuşka’daki ana şehitliğimizde hem de Lviv Opera Meydanı’nın mehter icrasında bulunmuştu. II. Viyana Kuşatması ve sonrasında Karloffça Antlaşmasıyla sonuçlanan süreçten 300 yıldan fazla bir süre geçtikten sonra Türk Mehteran’ı bu topraklara yeniden ayak basmıştı.
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/04/13226991_10154317222370649_7248274060381327791_n.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/13226991_10154317222370649_7248274060381327791_n.jpg)
 
 Osmanlı Tarihi’nin en ünlü kadın şahsiyetlerinden olan Kanuni Sultan Süleyman’ın eşi, Hürrem Sultan(Roksalana) da bu coğrafya ait, bu coğrafyada doğmuş ve yaşamış bir kişilik. Mehteran Bölüğümüzün, Batı Ukrayna seyahatinde Ukraynalı sanatseverlere buluştuğu bir başka nokta ise Hürrem Sultan’ın memleketi Ivano-Frankivsk’in Rogatin Kasabası’ndaki Hürrem Sutan Anıtı’nın önü olmuştu. Hem Lviv de hem de Rogatin de Ukraynalılar’ın Mehteran’a ilgisi hem şaşırtıcı hem de şaşırtıcı olduğu kadar etkileyiciydi de.
 
@@ -26,7 +26,7 @@ Ukrayna’nın Rusya ile Serbest Ticaret Antlaşması’nın iptali buna karşı
 
 Ukrayna Türk iş dünyası olarak, Ukrayna’daki bu değişime, Ukrayna'nın ekonomik ve siyasi ağırlık merkezi doğudan batıya kayarken, Batı Ukrayna'nın ticari ve kültürel başkenti Lviv'in önemi nin her geçen gün daha da artmasına kayıtsız kalamazdık ve kalmadık da. Lviv’e peş peşe yaptığımız çalışma ziyaretlerinde önce Lviv Bölgesi’nin başarılı ve iş dostu valisi Oleg Siniutka ve Lviv’in popüler belediye başkanı, ana muhalefet partisi Samopomiç’in genel başkanı Andriy Sadoviy ile iyi ilişkiler kurarken, daha sonra ise geçtiğimiz yılın mayıs ayında, Uluslararası Türk Ukrayna İşadamları Derneği’nin Batı Ukrayna şubesinin açılışını gerçekleştirdik. Açılış kurdelemizi ise Türkiye Cumhuriyet Kiev Büyükelçimiz Yönet Can Tezel ile bölgenin saygın işadamı,  Ukrayna’nın bir numaralı yol müteahhidi olan, üyemiz Onur İnşaat’ın yönetim kurulu başkanı Onur Çetinceviz ile beraber kestik. Kuşkusuz Çetinceviz’in gerçekleştirdiği başarılı projeler, bölgedeki Türk ve Türk işadamı imajına önemli katkı sağlıyor.
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/04/DSC_5141-0011.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/DSC_5141-0011.jpg)
 
 TUİD Batı Ukrayna temsilciliği görevini bölgedeki en büyük Türk sanayi yatırımı olan ve ağaç ürünleri sektöründe 2016 yılında işlem adeti kriterine göre Ukrayna’nın ihracat şampiyonu olma ayrıcalığını yaşayan Wood Industries’in yönetim kurulu üyesi, genç ve başarılı işadamımız Selim Tever üstlenirken, bir başka genç ve gelecek vaat eden girişimcimiz Fatih Aydın ise Lviv temsilciliği görevine seçildi.
 

@@ -6,11 +6,11 @@ tags: ["Ekonomi", "fatih metin", "Genel", "ödül", "TUİD", "TUİD (Türk Ukray
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/03/Screen-Shot-2018-03-03-at-11.25.24-PM.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/03/Screen-Shot-2018-03-03-at-11.25.24-PM.png)
 
 Türkiye Cumhuriyeti Ekonomi Bakan Yardımcısı Fatih Metin, 2017’nin temmuz ayında beraberinde kamu ve özel sektörden yirmi beş isimle, Kiev’e bir çalışma ziyareti yaptığında, Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) yönetimi olarak Ekonomi Bakanlığı heyetimizin onuruna, T.C. Kiev Büyükelçimiz Yönet Can Tezel’in de teşrif ettikleri bir yemek vermiştik. Fatih Metin, Ukrayna Ekonomik Kalkınma ve Ticaret Bakan Yardımcısı Mikhail Titarçuk’un da hazır bulunduğu ve ellinin üzerinde Türk ve Ukraynalı işadamı ve bürokratın katıldığı bu organizasyonda yaptığı konuşmasında TUİD’in faaliyet ve çalışmalarını takip ettiklerini söylerken, derneği yurtdışındaki Türk işadamı dernekleri arasında en başarılısı olarak nitelendirmişti. Bu anıyı hatırlamama neden olan gelişme ise, bu tarihten yedi ay sonra, bu sefer Ankara’da, Bilim Sanayi ve Teknoloji Bakanımız Faruk Özlü’nün teşrifleriyle düzenlenen törende, 2018 yılı Avrasya Hizmet Ödülleri Kapsamında TUİD’in yurtdışındaki en başarılı Türk işadamı derneği olarak seçilmesiydi.
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/03/Screen-Shot-2018-03-03-at-11.24.21-PM.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/03/Screen-Shot-2018-03-03-at-11.24.21-PM.png)
 
 TUİD, 2012 yılında ise Türk iş dünyasının dünyada en güçlü olduğu ülkelerin başında gelen Romanya’da, Doğu Avrupa’daki en başarı işadamı derneği sıfatına layık görülmüştü. Peki, TUİD kimdir, ne zaman, nasıl kuruldu, ne gibi yönetişim standartlarına sahip, dilerseniz berberce göz atalım.
 

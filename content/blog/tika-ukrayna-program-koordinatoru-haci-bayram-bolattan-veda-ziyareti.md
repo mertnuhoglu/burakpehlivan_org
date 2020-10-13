@@ -6,7 +6,7 @@ tags: ["Hacı Bayram Bolat", "Program Koordinatörü", "tika", "TİKA Ukrayna", 
 type: post
 ---
 
-[![DSCN0733](http://burakpehlivan.org/wp-content/uploads/2015/09/DSCN07331.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/09/DSCN07331.jpg)
+[![DSCN0733](https://burakpehlivan.org/wp-content/uploads/2015/09/DSCN07331.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/09/DSCN07331.jpg)
 
 Türkiye Cumhuriyeti Başbakanlık Türk İşbirliği ve Koordinasyon Ajansı Başkanlığı(TİKA) Ukrayna Program Koordinatörü Hacı Bayram Bolat, Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) genel merkezine bir veda ziyareti gerçekleştirdi. Bir buçuk yılı Kırım, 2 yılı ise Kiev’de olmak üzere Ukrayna’da toplamda yaklaşık 4 yıl görev yapan ve görevi süresi boyunca gerek Ukrayna makamları gerekse ülkedeki Türk işadamları nezdinde büyük sevgi ve saygı kazanan Hacı Bayram Bolat, TUİD’de, ülkedeki Türk iş dünyasına hitaben bir de veda konuşması gerçekleştirdi.
 
@@ -31,7 +31,7 @@ TUİD Ukrayna’da iş dünyamız açısından birleştirici, bütünleştirici 
 
 TİKA Ukrayna Program koordinatörü Hacı Bayram Bolat, “sözlerimi sonlandırmadan önce şunun da altını çizmek istiyorum ki TUİD kapsayıcı, kucaklayıcı bir yönetim anlayışını benimseyerek büyük firma, küçük firma; sektör ayrımı yapmıyor. Üyeleriniz arasında ülkemizin önde gelen holdingleri, bankaları olduğu gibi Ukrayna’da daha küçük çapta iş yapan işadamlarımız da bulunuyor. Derneğiniz, Ukrayna’nın geneline yayılmış şubeleriyle, Ukrayna’daki Türk İş Dünyasının birleştirici, bütünleştirici bir çatı kurumu olmuştur, bu da tek başına takdire şayan bir durumdur” derken, derneğin başarılarının devamını diledi.
 
-![IMG_20150910_112758](http://burakpehlivan.org/wp-content/uploads/2015/09/IMG_20150910_112758.jpg)
+![IMG_20150910_112758](https://burakpehlivan.org/wp-content/uploads/2015/09/IMG_20150910_112758.jpg)
 
 
 TİKA ülkemizin yurtdışındaki medar-ı iftarlarından biridir

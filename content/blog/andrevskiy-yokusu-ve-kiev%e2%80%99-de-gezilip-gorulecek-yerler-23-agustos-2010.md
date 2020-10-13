@@ -29,7 +29,7 @@ type: post
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2010/08/andreevskii_spusk.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2010/08/andreevskii_spusk.jpg)
 
 
 
@@ -54,7 +54,7 @@ Her ne kadar şehir II. Dünya Savaşı'nda büyük bir yıkıma sahne olduysa d
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2010/08/andreevskiy-spusk_1.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2010/08/andreevskiy-spusk_1.jpg)
 
 
 
@@ -69,7 +69,7 @@ Dünya'nın en geniş nehirlerinden biri olan ve Kiev' e hayat veren Dinyeper el
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2010/08/AS3.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2010/08/AS3.jpg)
 
 
 

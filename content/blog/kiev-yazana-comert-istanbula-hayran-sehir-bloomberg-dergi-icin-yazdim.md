@@ -8,7 +8,7 @@ type: post
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2020/03/DJI_0446_MotherMotherland_skyandmethod.com_@2x.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2020/03/DJI_0446_MotherMotherland_skyandmethod.com_@2x.jpg)
 
 **Kiev, yazana cömert, İstanbul’a hayran şehir** 
 
@@ -34,13 +34,13 @@ Kiev’in en tarihi caddesi Vladimirskaya Caddesi yalnız İstanbul ile Kiev’i
 
 **Burak Pehlivan** 
 
-![](http://burakpehlivan.org/wp-content/uploads/2020/03/1.png)
+![](https://burakpehlivan.org/wp-content/uploads/2020/03/1.png)
 
-![](http://burakpehlivan.org/wp-content/uploads/2020/03/2.png)
+![](https://burakpehlivan.org/wp-content/uploads/2020/03/2.png)
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2020/03/3.png)
+![](https://burakpehlivan.org/wp-content/uploads/2020/03/3.png)
 
  
 

@@ -6,7 +6,7 @@ tags: ["TUİD", "TUİD (Türk Ukrayna İşadamları Derneği)", "Ukrayna Türk �
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9217-104.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9217-104.jpg)
 
 
 Ukrayna’daki görev süresi sona eren Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel’in onuruna, Uluslararası Türk Ukrayna İşadamları Derneği (TUİD) tarafından Kiev Intercontinental Otel’de bir veda yemeği verildi. Türk ve Ukraynalı iş insanlarının, profesyonellerinin yanı sıra Azerbaycan Ukrayna Büyükelçisi Azer Hudiyev, Ukrayna Ekonomik Kalkınma ve Ticaret Bakan Yardımcısı Mikhail Titarçuk, Ukrayna Devlet Protokol genel müdürü Olga Çubrikova, Ukrayna Business Ombudsman İş Konseyinin başkan yardımcıları Tatyana Korotka ve Yarosvlav Gregirçak, Britanya Ukrayna Ticaret Odası Başkanı Bate Toms, Ukrayna Çin İş Derneği Başkanı Ruslan Osupenko, Ukrayna Avusturya İşadamları Derneği Başkanı Alfred Praus, Amerika Ukrayna İş Konseyi Başkan yardımcısı Michael Datsenko, icra kurulu üyesi Eric Luhman ve Ukrayna Sanayi ve Ticaret Odası Başkanı Gennadiy Çizikovgibi isimlerin de davetliler arasında yer aldığı gecede, Kyiv Post’un genel yayın yönetmeni Brian Bonner ve UBN genel yayın yönetmeni James Brooke da hazır bulundu.
@@ -54,102 +54,102 @@ Kiev Intercontinental Oteli’nde gerçekleştirilen veda yemeği hatıra fotoğ
 
 Kaynak: tuid.org.ua
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9252-123-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9252-123-Копировать.jpg)
 
 
-.![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9334-161-Копировать.jpg)![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9428-208-Копировать.jpg)
+.![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9334-161-Копировать.jpg)![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9428-208-Копировать.jpg)
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9154-69-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9154-69-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9438-211-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9438-211-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9424-207-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9424-207-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9417-201-Копировать.jpg)![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9403-194-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9417-201-Копировать.jpg)![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9403-194-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9413-199-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9413-199-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9409-197-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9409-197-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9082-35-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9082-35-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9398-192-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9398-192-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9389-187-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9389-187-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9378-183-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9378-183-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9368-177-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9368-177-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9362-175-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9362-175-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9352-172-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9352-172-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9351-171-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9351-171-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9343-166-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9343-166-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9336-162-Копировать.jpg)
-
- 
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9326-156-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9297-144-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9288-140-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9284-137-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9259-128-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9238-116-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9235-114-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9231-111-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9220-106-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9214-102-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9189-87-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9171-76-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9336-162-Копировать.jpg)
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9146-65-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9326-156-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9139-62-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9297-144-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9135-59-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9288-140-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9284-137-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9259-128-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9238-116-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9235-114-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9231-111-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9220-106-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9214-102-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9189-87-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9171-76-Копировать.jpg)
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9122-53-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9146-65-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9139-62-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9135-59-Копировать.jpg)
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9120-52-Копировать.jpg)
-
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9109-45-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9122-53-Копировать.jpg)
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9072-32-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9120-52-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9062-27-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9109-45-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9044-16-Копировать.jpg)
+ 
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9039-12-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9072-32-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9034-10-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9062-27-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9025-7-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9044-16-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9024-6-Копировать.jpg)![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9406-195-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9039-12-Копировать.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9018-1-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9034-10-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9025-7-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9024-6-Копировать.jpg)![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9406-195-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/IMG_9018-1-Копировать.jpg)

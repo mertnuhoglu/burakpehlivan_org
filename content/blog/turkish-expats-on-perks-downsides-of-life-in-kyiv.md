@@ -6,7 +6,7 @@ tags: ["TUİD (Türk Ukrayna İşadamları Derneği)"]
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/11/06_Burak-Pehlivan_MCH_8176.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/11/06_Burak-Pehlivan_MCH_8176.jpg)
 
 They moved to Kyiv from the three biggest Turkish cities: warm Izmir, windy Istanbul and the Turkish capital of Ankara. For one of them, Kyiv was love at first sight, while the others disliked the Ukrainian capital at first but grew fond over time.
 

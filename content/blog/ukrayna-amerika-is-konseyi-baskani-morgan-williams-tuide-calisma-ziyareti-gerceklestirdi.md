@@ -6,7 +6,7 @@ tags: ["Emil Aliyev", "Haydar Koçak", "Kiev Ticaret Müşaviri", "Morgan Willia
 type: post
 ---
 
-[![DSCN0286](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0286.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0286.jpg)
+[![DSCN0286](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0286.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0286.jpg)
 
 Amerika Birleşik Devletleri Ukrayna İş Konseyi(USUBC)Başkanı Morgan Williams, Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) genel merkezine bir çalışma ziyareti gerçekleştirirken, kendisine konseyin dış ilişkiler koordinatörü Michael Datsenko da eşlik etti. Görüşmede, TUİD başkanvekilleri Burak Pehlivan ve Oğuzhan Şen’in yanı sıra, Türkiye Cumhuriyeti Kiev Ticaret Müşaviri Haydar Koçak da hazır bulundu.
 
@@ -20,14 +20,14 @@ T.C. Kiev Ticaret müşaviri Haydar Koçak ise birkaç gün önce Türkiye Ukray
 
 TUİD genel merkezinde gerçekleşen toplantı sonrasında, derneğin başkanvekili Burak Pehlivan tarafından, ABD Ukrayna İş Konseyi Başkanı Morgan Williams’a TUİD üyelerinden bir bölümünün logolarının yer aldığı ve TUİD’in Ukrayna’ya desteğini vurgulayan taahhütname takdim edilirken, Amerikan heyetinin ziyareti hatıra fotoğrafı çektirilmesiyle sona erdi.
 
-![DSCN0282](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0282.jpg)
+![DSCN0282](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0282.jpg)
 
-![DSCN0262](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0262.jpg)
+![DSCN0262](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0262.jpg)
 
-[![DSCN0265](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0265.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0265.jpg)
+[![DSCN0265](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0265.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0265.jpg)
 
-[![DSCN0274](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0274.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0274.jpg)
+[![DSCN0274](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0274.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0274.jpg)
 
-[![DSCN0276](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0276.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0276.jpg)
+[![DSCN0276](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0276.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0276.jpg)
 
-[![DSCN0261](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0261.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0261.jpg)
+[![DSCN0261](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0261.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0261.jpg)

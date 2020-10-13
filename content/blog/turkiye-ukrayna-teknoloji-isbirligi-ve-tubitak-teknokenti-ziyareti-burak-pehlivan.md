@@ -6,7 +6,7 @@ tags: ["Dr. Orhan Çömlek", "Ekonomi", "Ertuğrul Işıksoy", "Hüseyin Özgür
 type: post
 ---
 
-[![DSC_0232](http://burakpehlivan.org/wp-content/uploads/2016/06/DSC_0232.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/06/DSC_0232.jpg)
+[![DSC_0232](https://burakpehlivan.org/wp-content/uploads/2016/06/DSC_0232.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/06/DSC_0232.jpg)
 
 
 
@@ -21,7 +21,7 @@ Ukrayna her ne kadar hala kendi uçağını, tankını, helikopter motorunu yapa
 
 
 
-![13458686_1069744759785893_2687459601767824252_o](http://burakpehlivan.org/wp-content/uploads/2016/06/13458686_1069744759785893_2687459601767824252_o.jpg)
+![13458686_1069744759785893_2687459601767824252_o](https://burakpehlivan.org/wp-content/uploads/2016/06/13458686_1069744759785893_2687459601767824252_o.jpg)
 
 
 
@@ -31,7 +31,7 @@ Kocaeli Ticaret Odası’nda başlayan ve protokol konuşmalarının sonrasında
 
 
 
-![13445823_1069746559785713_4225291958493923784_n](http://burakpehlivan.org/wp-content/uploads/2016/06/13445823_1069746559785713_4225291958493923784_n.jpg)
+![13445823_1069746559785713_4225291958493923784_n](https://burakpehlivan.org/wp-content/uploads/2016/06/13445823_1069746559785713_4225291958493923784_n.jpg)
 
 
 
@@ -41,7 +41,7 @@ Forumun ikinci gününde ilk olarak foruma büyük destek sağlayan Doğu Marmar
 
 
 
-![13392113_1069746706452365_8965363965151732119_o](http://burakpehlivan.org/wp-content/uploads/2016/06/13392113_1069746706452365_8965363965151732119_o.jpg)
+![13392113_1069746706452365_8965363965151732119_o](https://burakpehlivan.org/wp-content/uploads/2016/06/13392113_1069746706452365_8965363965151732119_o.jpg)
 
 
 
@@ -51,7 +51,7 @@ Dünya’nın tek çatı altındaki en büyük MDF tesisi olan Yıldız Entegre,
 
 
 
-![13418626_1069744849785884_5526290058731438163_o](http://burakpehlivan.org/wp-content/uploads/2016/06/13418626_1069744849785884_5526290058731438163_o.jpg)
+![13418626_1069744849785884_5526290058731438163_o](https://burakpehlivan.org/wp-content/uploads/2016/06/13418626_1069744849785884_5526290058731438163_o.jpg)
 
 
 
@@ -61,7 +61,7 @@ Ancak benim için 4 gün süren forumun en güzel bölümü Türkiye’deki 62 t
 
 
 
-[![DSC_0211](http://burakpehlivan.org/wp-content/uploads/2016/06/DSC_0211.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/06/DSC_0211.jpg)
+[![DSC_0211](https://burakpehlivan.org/wp-content/uploads/2016/06/DSC_0211.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/06/DSC_0211.jpg)
 
 
 
@@ -81,11 +81,11 @@ Toplantı esnasında Ukrayna heyetinin üyeleri Ukrayna Yüksek Meclisi’nin te
 
 
 
-![13418637_1069744546452581_4274933819938272286_o](http://burakpehlivan.org/wp-content/uploads/2016/06/13418637_1069744546452581_4274933819938272286_o.jpg)
+![13418637_1069744546452581_4274933819938272286_o](https://burakpehlivan.org/wp-content/uploads/2016/06/13418637_1069744546452581_4274933819938272286_o.jpg)
 
 
 
 
- [![13392153_1069746589785710_6523154371659514814_o](http://burakpehlivan.org/wp-content/uploads/2016/06/13392153_1069746589785710_6523154371659514814_o.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/06/13392153_1069746589785710_6523154371659514814_o.jpg) [![13407125_1069744856452550_4516269651627240860_n](http://burakpehlivan.org/wp-content/uploads/2016/06/13407125_1069744856452550_4516269651627240860_n.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/06/13407125_1069744856452550_4516269651627240860_n.jpg) [![13412216_1069746729785696_5254142740301410852_o](http://burakpehlivan.org/wp-content/uploads/2016/06/13412216_1069746729785696_5254142740301410852_o.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/06/13412216_1069746729785696_5254142740301410852_o.jpg) [![13417022_1069745093119193_7769220914538226389_o](http://burakpehlivan.org/wp-content/uploads/2016/06/13417022_1069745093119193_7769220914538226389_o.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/06/13417022_1069745093119193_7769220914538226389_o.jpg)    [![13443315_1069747226452313_7914572106755797122_o](http://burakpehlivan.org/wp-content/uploads/2016/06/13443315_1069747226452313_7914572106755797122_o.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/06/13443315_1069747226452313_7914572106755797122_o.jpg)
+ [![13392153_1069746589785710_6523154371659514814_o](https://burakpehlivan.org/wp-content/uploads/2016/06/13392153_1069746589785710_6523154371659514814_o.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/06/13392153_1069746589785710_6523154371659514814_o.jpg) [![13407125_1069744856452550_4516269651627240860_n](https://burakpehlivan.org/wp-content/uploads/2016/06/13407125_1069744856452550_4516269651627240860_n.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/06/13407125_1069744856452550_4516269651627240860_n.jpg) [![13412216_1069746729785696_5254142740301410852_o](https://burakpehlivan.org/wp-content/uploads/2016/06/13412216_1069746729785696_5254142740301410852_o.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/06/13412216_1069746729785696_5254142740301410852_o.jpg) [![13417022_1069745093119193_7769220914538226389_o](https://burakpehlivan.org/wp-content/uploads/2016/06/13417022_1069745093119193_7769220914538226389_o.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/06/13417022_1069745093119193_7769220914538226389_o.jpg)    [![13443315_1069747226452313_7914572106755797122_o](https://burakpehlivan.org/wp-content/uploads/2016/06/13443315_1069747226452313_7914572106755797122_o.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/06/13443315_1069747226452313_7914572106755797122_o.jpg)
 
 

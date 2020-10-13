@@ -6,7 +6,7 @@ tags: ["Anadolu Ajansı", "Ekonomi", "maliyeti düşük yazılımcı", "Musab Tu
 type: post
 ---
 
-[![thumbs_b_c_ad2bd5681ba607ea827711bbba5245e8](http://burakpehlivan.org/wp-content/uploads/2015/10/thumbs_b_c_ad2bd5681ba607ea827711bbba5245e8.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/10/thumbs_b_c_ad2bd5681ba607ea827711bbba5245e8.jpg)
+[![thumbs_b_c_ad2bd5681ba607ea827711bbba5245e8](https://burakpehlivan.org/wp-content/uploads/2015/10/thumbs_b_c_ad2bd5681ba607ea827711bbba5245e8.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/10/thumbs_b_c_ad2bd5681ba607ea827711bbba5245e8.jpg)
 
 Anadolu Ajansına verdiğim son röportajda, dünyada en çok sertifikalı yazılım uzmanına sahip olan ilk 5 ülkeden biri olan Ukrayna’nın, Türk firmaları için rekabetçi bir outsourcing lokasyonu ve yatırım merkezi olabileceğine dikkat çektim. Aşağıda ilgili röportajın  tam metni yer alıyor.
 

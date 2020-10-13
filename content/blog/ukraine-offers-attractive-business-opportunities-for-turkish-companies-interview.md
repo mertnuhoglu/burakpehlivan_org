@@ -6,7 +6,7 @@ tags: ["agriculture", "Business", "Ekonomi", "English", "English Articles", "int
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/02/DSC_3671-001-09.54.06.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/02/DSC_3671-001-09.54.06.jpg)
 
 
 

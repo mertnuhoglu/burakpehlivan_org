@@ -6,7 +6,7 @@ tags: ["Ali Kunt", "başkonsolosluğu", "Büyükelçilik İkinci Katibi", "Deniz
 type: post
 ---
 
-[![DSCN6071](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6071.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6071/)
+[![DSCN6071](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6071.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6071/)
 Odesa başkonsolosluğu görevine resmen başlayan Nur Sağman Türk Ukrayna İşadamları Derneği (TUİD) Genel Merkezi’ne bir tanışma ve nezaket ziyareti gerçekleştirdi. Başkonsolos Sağman’a yine Ukrayna’daki görevine yeni başlayan Kiev Büyükelçiliği başkatibi Emre Manav ve İkinci Katip Fatih Öztürk eşlik etti.
 
 Nur Sağman dernek genel merkezinde yaptığı konuşmada, yurtdışındaki Türk İş Dünyası’nın önemine dikkat çekerken, yalnız ticaret müşavirlerinin değil, dışişleri personelinin de Türk işadamlarının yanında olduğunun ve yurtdışında onları desteklediklerinin altını çizdi. Sağman, daha önce görev yaptığı Romanya, Estonya, Fas gibi ülkelerde bunun güzel örneklerini yaşadığını ifade ederken, Odesa Başkonsolosluğu’nun kapısının görevi sürecince her zaman Türk işadamlarına açık olduğunu belirterek sözlerini tamamladı.
@@ -25,28 +25,28 @@ http://www.turkiyegazetesi.com.tr/dunya/67373.aspx
 
  
 
-[![DSCN6058](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6058.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6058/)
+[![DSCN6058](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6058.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6058/)
 
-[![DSCN6053](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6053.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6053/)
+[![DSCN6053](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6053.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6053/)
 
-[![DSCN6052](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6052.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6052/)
+[![DSCN6052](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6052.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6052/)
 
-[![DSCN6048](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6048.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6048/)
+[![DSCN6048](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6048.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6048/)
 
-[![DSCN6044](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6044.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6044/)
+[![DSCN6044](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6044.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6044/)
 
-[![DSCN6043](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6043.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6043/)
+[![DSCN6043](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6043.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6043/)
 
-[![DSCN6041](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6041.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6041/)
+[![DSCN6041](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6041.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6041/)
 
-[![DSCN6037](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6037.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6037/)
+[![DSCN6037](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6037.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6037/)
 
-[![DSCN6034](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6034.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6034/)
+[![DSCN6034](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6034.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6034/)
 
-[![DSCN6031](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6031.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6031/)
+[![DSCN6031](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6031.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6031/)
 
  
 
-[![DSCN6024](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6024.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6024/)
+[![DSCN6024](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6024.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6024/)
 
-[![DSCN6021](http://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6021.jpg)](http://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6021/)
+[![DSCN6021](https://burakpehlivan.org/wp-content/uploads/2013/08/DSCN6021.jpg)](https://burakpehlivan.org/1723/turkiyenin-yeni-odesa-baskonsolosu-nur-sagman-tuide-tanisma-ziyareti-gerceklestirdi/dscn6021/)

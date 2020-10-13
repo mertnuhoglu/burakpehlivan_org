@@ -6,7 +6,7 @@ tags: ["Ekonomi", "Ukrayna", "Ukrayna Dış İlişkileri", "Ukrayna Ekonomisi", 
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2012/11/ukraynada-devaluasyon-kapida-mi-ulke-yatirim-acisindan-cazip-mi.jpg "ukraynada-devaluasyon-kapida-mi-ulke-yatirim-acisindan-cazip-mi")
+![](https://burakpehlivan.org/wp-content/uploads/2012/11/ukraynada-devaluasyon-kapida-mi-ulke-yatirim-acisindan-cazip-mi.jpg "ukraynada-devaluasyon-kapida-mi-ulke-yatirim-acisindan-cazip-mi")
 
 
 

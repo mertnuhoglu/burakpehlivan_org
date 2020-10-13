@@ -6,7 +6,7 @@ tags: ["Bir Başkadır Benim Memleketim", "Doğu Dilleri Olimpiyatları", "Gala 
 type: post
 ---
 
-[![W](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0388.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0388.jpg)
+[![W](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0388.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0388.jpg)
 
 **Ukrayna Bilim ve Eğitim Bakanlığı** tarafından her yıl Türkçe, Arapça, Farsça, Çince ve Korece Dilleri’nde düzenlenen **Doğu Dilleri Olimpiyatları**’nın **Gala yemeği**, organizasyonun Ana Sponsoru **Türk Ukrayna İşadamları Derneği(TUİD)** tarafından Kiev Bakü restoranda verildi. Yemeğe, T.C. Kiev büyükelçisi Yönet Can Tezel’in ülke dışında olması nedeniyle, **Büyükelçilik müsteşarı** **Evren Müderrisoğlu,** **Kiev Milli Dil Üniversitesi Rektörü** **Roman Vasko**, **Türk İşbirliği ve Kalkınma Ajansı(TİKA)** Ukrayna program koordinatörü **Hacı Bayram Bolat**, THY ülke müdürü **Hakan Yılmaz**, TUİD yönetim kurulu üyeleri, üniversite yöneticileri, öğretim üyeleri ve öğrenciler katıldı.
 
@@ -20,32 +20,32 @@ Son olarak konuşma yapan Ukrayna’nın en büyük ve prestijli dil üniversite
 
 Olimpiyatlarda dereceye giren öğrencilerden **Sofiya Alev Üna**l’ın, yemekte “**Bir Başkadır Benim Memleketim**” şarkısını söylemesi davetlilerden büyük alkış aldı.
 
-[![DSC_0374](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0374.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0374.jpg)
+[![DSC_0374](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0374.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0374.jpg)
 
-[![DSC_0375](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0375.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0375.jpg)
+[![DSC_0375](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0375.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0375.jpg)
 
-[![DSC_0379](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0379.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0379.jpg)
+[![DSC_0379](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0379.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0379.jpg)
 
-[![DSC_0382](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0382.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0382.jpg)
+[![DSC_0382](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0382.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0382.jpg)
 
-[![DSC_0343](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0343.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0343.jpg)
+[![DSC_0343](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0343.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0343.jpg)
 
  
 
-[![DIGITAL CAMERA](http://burakpehlivan.org/wp-content/uploads/2014/04/td1.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/td1.jpg)
+[![DIGITAL CAMERA](https://burakpehlivan.org/wp-content/uploads/2014/04/td1.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/td1.jpg)
 
-[![DSC_0344](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0344.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0344.jpg)
+[![DSC_0344](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0344.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0344.jpg)
 
-[![DSC_0347](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0347.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0347.jpg)
+[![DSC_0347](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0347.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0347.jpg)
 
-[![10153901_10152069957577862_4215686313843464705_n](http://burakpehlivan.org/wp-content/uploads/2014/04/10153901_10152069957577862_4215686313843464705_n.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/10153901_10152069957577862_4215686313843464705_n.jpg)
+[![10153901_10152069957577862_4215686313843464705_n](https://burakpehlivan.org/wp-content/uploads/2014/04/10153901_10152069957577862_4215686313843464705_n.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/10153901_10152069957577862_4215686313843464705_n.jpg)
 
-[![DSC_0348](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0348.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0348.jpg)
+[![DSC_0348](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0348.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0348.jpg)
 
-[![DSC_0352](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0352.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0352.jpg)
+[![DSC_0352](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0352.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0352.jpg)
 
-[![DSC_0362](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0362.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0362.jpg)
+[![DSC_0362](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0362.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0362.jpg)
 
-[![DSC_0367](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0367.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0367.jpg)
+[![DSC_0367](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0367.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0367.jpg)
 
-[![DSC_0369](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0369.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0369.jpg)
+[![DSC_0369](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0369.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/DSC_0369.jpg)

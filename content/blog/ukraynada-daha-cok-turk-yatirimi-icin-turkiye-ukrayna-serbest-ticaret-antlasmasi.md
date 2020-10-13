@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "Ekonomi", "Lifecell", "TUİD (Türk Ukrayna İşadamlar
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/03/23123-1.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/03/23123-1.jpg)
 
 Ukrayna Başbakanı Vladimir Groysman kısa bir süre sonra yapacağı Türkiye ziyareti öncesinde, Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel'in ev sahipliğinde, Ukrayna'daki bir grup Türk işadamı ve profesyonelle çalışma yemeğinde bir araya geldi. Etkinlikte, Türkiye Ukrayna ekonomik ilişkilerinin en önemli gündem maddesi olan ve 2007 yılından beri müzakereleri devam eden Türkiye Ukrayna Serbest Ticaret Antlaşması'nın yanı sıra, Ukrayna'da bir Türk Organize Sanayi Bölgesi kurulması, iki ülke arasında tarım alanında yatırım ve ticaret olanaklarını geliştirilmesi gibi konular görüşüldü. Ayrıca, Türk firmaları ülkede yaşadıkları sıkıntıları doğrudan başbakana anlatma imkanı bulurken, Ukrayna'nın daha yüksek büyüme rakamlarına ulaşılabilmesi için gerçekleştirilmesi gereken yapısal reformlara ilişkin görüşlerimizi de iletme fırsatımız oldu.
 
@@ -34,7 +34,7 @@ Ukrayna’nın AB ile yaptığı antlaşmaların olumlu etkileri henüz hissedil
 
 Ukrayna’da benzer gelişmeleri yaşayacaktır ancak ülkenin vakit kaybetmeye tahammülü yok, bir an önce yabancı sermayenin gelmesine, yeni fabrikaların kurulmasına, istihdam oluşturulmasına ihtiyacı var.
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/03/IMG_5795.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/03/IMG_5795.jpg)
 
 **Kanada Ukrayna STA’sı psikolojik açıdan** **ç****ok** **ö****nemli**
 

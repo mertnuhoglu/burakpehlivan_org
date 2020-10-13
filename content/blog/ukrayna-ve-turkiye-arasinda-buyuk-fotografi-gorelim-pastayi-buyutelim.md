@@ -6,7 +6,7 @@ tags: ["Ukrayna"]
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/05/Screen-Shot-2018-05-08-at-9.14.41-AM.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/05/Screen-Shot-2018-05-08-at-9.14.41-AM.png)
 
 Dış Ekonomik İlişkiler Kurulu(DEİK)’in düzenlediği ve Ukrayna Başbakan Birinci Yardımcısı Stepan Kubiv ile Türkiye Cumhuriyeti Milli Savunma Bakanı Nurettin Canikli’nin eş başkanlığında gerçekleşen Türkiye Ukrayna İş Forumu kapsamında, Anadolu Ajansı için Türkiye Ukrayna ekonomik ilişkilerini değerlendiren Uluslararası Türk Ukrayna İşadamları Derneği (TUİD) Başkanı, DEİK Dünya Türk İş Konseyi Avrasya Komitesi yönetim kurulu üyesi Burak Pehlivan, Türk yatırımcılar için Ukrayna'da tarım, yenilebilir enerji, sanayi ve bilişim sektörlerinde önemli fırsatlar olduğunu söyledi.
 

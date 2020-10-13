@@ -6,7 +6,7 @@ tags: ["Emre Manav", "erhan çimen", "Fatih Şahin", "Kiev Büyükelçiliği Ba�
 type: post
 ---
 
-[![DSCN7191](http://burakpehlivan.org/wp-content/uploads/2013/12/DSCN7191.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/DSCN7191.jpg)
+[![DSCN7191](https://burakpehlivan.org/wp-content/uploads/2013/12/DSCN7191.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/DSCN7191.jpg)
 Ukrayna’daki görev süresi sona eren **Türkiye Cumhuriyeti Kiev Büyükelçisi Mehmet Samsar**’a, **Ukrayna Beşiktaşlılar Derneği** bir veda ziyareti gerçekleştirdi. Ziyarette T**.C. Kiev Büyükelçiliği** **Başkatibi** Emre Manav da hazır bulundu.
 
 **Ukrayna Beşiktaşlılar Derneği** Yönetim Kurulu Başkanı **Burak Pehlivan**, derneğin 2013 yılı çalışmalarına ilişkin bilgi verirken, derneğin kuruluş dönemiyle, Büyüelçi **Samsar**’ın Kiev’deki görev süresinin başlama tarihlerinin çakıştığını belirterek, **faaliyetleri** esnasında büyükelçiliğin desteğini her zaman arkalarında hissettiklerini belirterek bundan dolayı kendilerine teşekkür etti. Pehlivan, Mehmet Samsar’ın **Ukraynadaki Türk vatandaşları** ve dernekler ile çok sıcak bir ilgi kurduğunu ve yakın iletişim oluşturduğunun altını çizerek, dernek ve **Ukrayna Türk Toplumu** olarak büyükelçiyi özleyeceklerini, ve şükranla anacaklarını ifade etti.

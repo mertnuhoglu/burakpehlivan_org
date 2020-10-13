@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "Dünya Gazetesi", "Ekonomi", "Engin Akçakoca", "ertuğ
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-00.43.42-1.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-00.43.42-1.png)
 
 
 Türkiye'nin önden gelen ekonomi muhabirlerinden biri olan, belki de yurtdışı Türk iş dünyasını en yakından takip eden isim, Dünya Gazetesi yazarı Kerim Ülker Ukrayna Türk iş dünyasını Dünya Gazetesi'nin sayfalarına taşıdı.
@@ -82,4 +82,4 @@ Coca-Cola, Pfizer, Hilton, Colgate, P&G, GSK, Unilever, Gilette, Schneider, BASF
  [https://www.dunya.com/kose-yazisi/japon-sojitz-ronesans-ile-18-milyar-dolar-yatiracak/372973](https://www.dunya.com/kose-yazisi/japon-sojitz-ronesans-ile-18-milyar-dolar-yatiracak/372973)
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/FullSizeRender.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/FullSizeRender.jpg)

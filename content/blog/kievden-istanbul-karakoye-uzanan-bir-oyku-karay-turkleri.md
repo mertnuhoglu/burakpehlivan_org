@@ -6,7 +6,7 @@ tags: ["Din", "Doğu Avrupa", "Gezi ve Restoran", "karaköy", "karaylar", "Kiev"
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/10/Ekran-Resmi-2018-10-05-10.56.24.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/10/Ekran-Resmi-2018-10-05-10.56.24.png)
 
 
 
@@ -44,7 +44,7 @@ Biz de bugün bu eski ibadethanede farklı bir konser için bir araya geldik. Ha
 **Burak PEHLİVAN**
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.53-1024x768.jpeg) ![](http://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.54-1-1024x768.jpeg) ![](http://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.54-1024x768.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.53-1024x768.jpeg) ![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.54-1-1024x768.jpeg) ![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.54-1024x768.jpeg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/10/Ekran-Resmi-2018-10-05-10.21.56-1024x681.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/10/Ekran-Resmi-2018-10-05-10.21.56-1024x681.png)
 

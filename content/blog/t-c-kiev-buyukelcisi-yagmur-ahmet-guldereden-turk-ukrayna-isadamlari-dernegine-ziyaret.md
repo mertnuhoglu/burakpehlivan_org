@@ -6,7 +6,7 @@ tags: ["T.C Kiev Büyükelçisi", "TUİD", "TUİD (Türk Ukrayna İşadamları D
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5448-45-1.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5448-45-1.jpg)
 
 Türkiye Cumhuriyeti Kiev Büyükelçiliği görevine yeni başlayan Yağmur Ahmet Güldere, Uluslararası Türk Ukrayna İşadamları Derneği’ne (TUİD) bir nezaket ziyareti gerçekleştirdi. Büyükelçi Güldere, burada TUİD yönetim kurulu üyeleri tarafından karşılanırken, kendisine T.C. Kiev Ticaret Müşaviri Haydar Koçak da eşlik etti. Ziyarette TUİD yönetim kurulu başkanı Burak Pehlivan’ın dışında, başkanvekili ve TUİD Herson temsilcisi Ali Bulut, TUİD Yönetim kurulu üyesi, Zaporoje temsilcisi ve dernek kurucu üyesi Mesut Erk, TUİD yönetim kurulu ve muhasip üyesi Volkan Turhan, yönetim kurulu üyesi ve Lviv Temsilcisi Fatih Aydın, yönetim kurulu üyesi ve Vinnitsa temsilcisi Anatoliy Ribçuk, yönetim kurulu üyesi ve Ukrayna Azerbaycan Sanayici ve İşadamları Birliği başkanı Ali Aliyev, yönetim kurulu üyesi Cenk Gültekin ile TUİD üyeleri Orçun Gömeç ve Yetkin Koç hazır bulundular.
 
@@ -22,8 +22,8 @@ Görüşmenin sonunda T.C. Kiev Büyükelçisi Yağmur Ahmet Güldere, TUİD’i
 
 www.tuid.org.ua
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5411-26.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5411-26.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5384-11.jpg)   ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5397-18.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5399-19.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5402-20.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5384-11.jpg)   ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5397-18.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5399-19.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5402-20.jpg)
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5373-4.jpg)![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5406-22.jpg)  ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5415-27.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5416-28.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5417-29.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5418-30.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5426-32.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5427-33.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5431-35.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5441-39.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5442-40.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5373-4.jpg)![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5406-22.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5415-27.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5416-28.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5417-29.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5418-30.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5426-32.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5427-33.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5431-35.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5441-39.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5442-40.jpg)

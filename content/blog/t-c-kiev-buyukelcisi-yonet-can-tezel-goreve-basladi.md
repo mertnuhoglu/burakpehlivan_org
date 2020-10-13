@@ -6,7 +6,7 @@ tags: ["Barış Ülkü", "Başladı", "Emre Manav", "Evyap Ukrayna", "Göreve", 
 type: post
 ---
 
-[![DSCN7358](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7358.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7358.jpg)
+[![DSCN7358](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7358.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7358.jpg)
 Ukrayna’daki görevine yeni başlayan Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel’e, Türk Ukrayna İşadamları Derneği(TUİD) heyeti tarafından bir hoşgeldiniz ziyareti gerçekleştirildi. Görüşmede, Kiev Büyükelçiliği başkatibi Emre Manav da hazır bulundu. 
 
 Ziyaretin başında, TUİD yönetim kurulu başkanvekili Burak Pehlivan, yeni büyükelçiye hoşgeldiniz dileklerini sunarken, daha sonra dernek ve dernek faaliyetleri ile ilgili kısa bir sunum yaptı. Pehlivan, Türk Ukrayna İşadamları Derneği’nin ,2004 yılında Başbakan Recep Tayyip Erdoğan’ın Kiev ziyareti sırasında ülkede bir Türk işadamı derneği olmamasının gündeme gelmesi sonucunda, Kiev büyükelçiliğinin himayesinde o dönemde Ukrayna’da iş yapan Türk işadamları ve profesyonelleri tarafından kurulduğunu hatırlatarak, bu yıl derneğin 10. kuruluş yıldönümünü kutlayacaklarının altını çizdi. Pehlivan, 2012 yılında, Doğu Avrupa’da en başarılı Türk işadamı derneği seçilen TUİD’in 10. yılda da faaliyetlerine güçlü bir biçimde devam edeceğini ifade etti. Pehlivan, “TUİD’in bir geleneği olarak göreve yeni başlayan büyükelçilerimiz onuruna, ülkedeki Türk iş dünyası ile bir tanışma yemeği düzenliyoruz, bu yemeğe teşrifleriniz bizleri mutlu edecektir” diyerek sözlerini tamamladı. 
@@ -18,16 +18,16 @@ Büyükelçi Tezel’in Ukrayna'da son dönemde yaşananlardan Ukrayna’daki T�
 TUİD yönetim kurulu üyesi ve aynı zamanda dünya’nın en büyük kimya firması Alman BASF’ın Ukrayna’daki Türk yöneticisi olan Zaferhan Kılıç ise gerek firma olarak gerekse şahsında Ukrayna’nın potansiyeline inandıklarını ve bu ülkeye kısa değil uzun vadeli baktıklarını söyledi. Daha sonra söz alan TUİD yönetim kurulu üyesi Ali Aliyev , kendisinin TUİD’deki görevinin yanı sıra Ukrayna’daki Azerbaycan işadamları derneğinin yönetim kurulu başkanlığı görevini de yürüttüğünü belirterek, mart ayı içerisinde Azerbaycan’ın Kiev büyükelçisi Eynulla Medetli ve T.C. Kiev Büyükelçisi Yönet Can Tezel’in teşrifleriyle Ukrayna’da iş yapan Türkiye ve Azerbaycan kökenli Türk işadamlarının tanışması amaçlı bir yemek verme niyetlerini dile getirdi. 
 
 Türk Ukrayna İşadamları Derneği heyetinin, Türkiye Cumhuriyeti’nin Kiev Büyükelçiğine yaptığı nezaket ziyareti, görüşme sonrası anı fotoğrafı çekilmesiyle sona erdi. 
-[![DSCN7346](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7346.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7346.jpg)
+[![DSCN7346](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7346.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7346.jpg)
 
-[![DSCN7345](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7345.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7345.jpg)
+[![DSCN7345](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7345.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7345.jpg)
 
-[![DSCN7342](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7342.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7342.jpg)
+[![DSCN7342](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7342.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7342.jpg)
 
-[![DSCN7341](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7341.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7341.jpg)
+[![DSCN7341](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7341.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7341.jpg)
 
-[![DSCN7351](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7351.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7351.jpg)
+[![DSCN7351](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7351.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7351.jpg)
 
-[![DSCN7353](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7353.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7353.jpg)
+[![DSCN7353](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7353.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7353.jpg)
 
-[![DSCN7347](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7347.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7347.jpg)
+[![DSCN7347](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7347.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/02/DSCN7347.jpg)

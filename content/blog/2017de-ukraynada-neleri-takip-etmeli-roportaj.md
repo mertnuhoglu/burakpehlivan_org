@@ -6,7 +6,7 @@ tags: ["Ankara", "Burak Pehlivan", "Ekonomi", "havayolları", "Kiev", "röportaj
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/01/burak-pehlivan.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/01/burak-pehlivan.jpg)
 
 
 

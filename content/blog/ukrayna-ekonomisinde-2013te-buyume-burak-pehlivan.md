@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "EBRD Ukrayna", "Ekonomi", "Kuçma", "Şevki Acuner", "U
 type: post
 ---
 
-[![156747721](http://burakpehlivan.org/wp-content/uploads/2013/07/156747721.jpg)](http://burakpehlivan.org/1546/ukrayna-ekonomisinde-2013te-buyume-burak-pehlivan/attachment/156747721/)
+[![156747721](https://burakpehlivan.org/wp-content/uploads/2013/07/156747721.jpg)](https://burakpehlivan.org/1546/ukrayna-ekonomisinde-2013te-buyume-burak-pehlivan/attachment/156747721/)
 
 
 
@@ -16,7 +16,7 @@ Ukrayna, global ekonomik krizin etkisiyle 2009 yılında gerçekleşen %15,6’l
 
 
 
-[![220px-Ukrainian_salary_map](http://burakpehlivan.org/wp-content/uploads/2013/07/220px-Ukrainian_salary_map.png)](http://burakpehlivan.org/1546/ukrayna-ekonomisinde-2013te-buyume-burak-pehlivan/220px-ukrainian_salary_map/)Ukrayna ekonomisi 2013’ün ilk çeyreğinde %1,1 küçülürken, inşaat sektöründeki küçülme ise %14,8’i buldu, sanayi üretiminde ise daralma %5’in üzerinde gerçekleşti. Tarım ve ormancılıktaki %5,7’lik, ticarette ise %3,1’lik büyüme ne yazık ki ekonominin küçülmesini engelleyemedi. Mevcut veriler ve öngörüler doğrultusunda hükümet 2013 yılına ilişkin büyüme tahminini %1-1,5 aralığına çekmiş durumda. IMF’e göre, Ukrayna bu yıl büyüme kaydedemeyecek. Büyümeye ilişkin en kötümser tahmini ise ülkenin son dönemde en büyük kreditörlerinin başında gelen ve geçtiğimiz günlerde Ukrayna Ülke direktörlüğüne bir Türk bankacının, Şevki Acuner’in atandığı Avrupa İmar ve Kalkınma Bankası(EBRD) yapıyor, bu kuruma göre ülke ekonomisinde bu yıl %0,5’lik bir daralma yaşanacak.
+[![220px-Ukrainian_salary_map](https://burakpehlivan.org/wp-content/uploads/2013/07/220px-Ukrainian_salary_map.png)](https://burakpehlivan.org/1546/ukrayna-ekonomisinde-2013te-buyume-burak-pehlivan/220px-ukrainian_salary_map/)Ukrayna ekonomisi 2013’ün ilk çeyreğinde %1,1 küçülürken, inşaat sektöründeki küçülme ise %14,8’i buldu, sanayi üretiminde ise daralma %5’in üzerinde gerçekleşti. Tarım ve ormancılıktaki %5,7’lik, ticarette ise %3,1’lik büyüme ne yazık ki ekonominin küçülmesini engelleyemedi. Mevcut veriler ve öngörüler doğrultusunda hükümet 2013 yılına ilişkin büyüme tahminini %1-1,5 aralığına çekmiş durumda. IMF’e göre, Ukrayna bu yıl büyüme kaydedemeyecek. Büyümeye ilişkin en kötümser tahmini ise ülkenin son dönemde en büyük kreditörlerinin başında gelen ve geçtiğimiz günlerde Ukrayna Ülke direktörlüğüne bir Türk bankacının, Şevki Acuner’in atandığı Avrupa İmar ve Kalkınma Bankası(EBRD) yapıyor, bu kuruma göre ülke ekonomisinde bu yıl %0,5’lik bir daralma yaşanacak.
 
 
 
@@ -26,7 +26,7 @@ Ukrayna, Türkiye’den farklı olarak yaşlı bir nüfusa sahip ve nüfusu artm
 
 
 
-[![Russa-Ukraine-art_1650452c](http://burakpehlivan.org/wp-content/uploads/2013/07/Russa-Ukraine-art_1650452c.jpg)](http://burakpehlivan.org/1546/ukrayna-ekonomisinde-2013te-buyume-burak-pehlivan/russa-ukraine-art_1650452c/)
+[![Russa-Ukraine-art_1650452c](https://burakpehlivan.org/wp-content/uploads/2013/07/Russa-Ukraine-art_1650452c.jpg)](https://burakpehlivan.org/1546/ukrayna-ekonomisinde-2013te-buyume-burak-pehlivan/russa-ukraine-art_1650452c/)
 
 
 
@@ -41,7 +41,7 @@ Peki Ukrayna’da bugün yaşanan durum ne, tekrar pozitif büyüme rakamlarına
 
 
 
-[![8e9e94a45fd0d7a40c004016331ce5b195d03e71-505x2841](http://burakpehlivan.org/wp-content/uploads/2013/07/8e9e94a45fd0d7a40c004016331ce5b195d03e71.jpg)](http://burakpehlivan.org/1546/ukrayna-ekonomisinde-2013te-buyume-burak-pehlivan/8e9e94a45fd0d7a40c004016331ce5b195d03e71-505x2841/)
+[![8e9e94a45fd0d7a40c004016331ce5b195d03e71-505x2841](https://burakpehlivan.org/wp-content/uploads/2013/07/8e9e94a45fd0d7a40c004016331ce5b195d03e71.jpg)](https://burakpehlivan.org/1546/ukrayna-ekonomisinde-2013te-buyume-burak-pehlivan/8e9e94a45fd0d7a40c004016331ce5b195d03e71-505x2841/)
 
 
 

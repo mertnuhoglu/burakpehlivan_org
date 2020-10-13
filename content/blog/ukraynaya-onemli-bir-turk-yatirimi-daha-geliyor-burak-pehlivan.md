@@ -8,7 +8,7 @@ type: post
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2016/05/icas_2.olaganustutoplantisi.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2016/05/icas_2.olaganustutoplantisi.jpg)
 
 TUİD’de, Uluslararası Uygunluk Değerlendirme A.Ş.(ICAS) yönetim kurulu üyesi ve genel müdürü Dr. Veysel Türkel ile şirketin teknik müdürü Eyüp Hamdi Karasakal’ı konuk ediyoruz. ICAS, öyle herhangi bir firma değil zira ülkemizde standartları belirleyen kurum olan Türk Standartları Enstitüsü(TSE) tarafından, toplam büyüklüğü 200 milyar doları bulan dünya uygunluk değerlendirme pazarında pay sahibi olabilme hedefiyle 2014 yılında 100 milyon TL başlangıç sermayesiyle kurulmuş. Yerli ve yabancı kalifiye uzmanlarla çalışan şirket, uluslararası işbirlikleri ve laboratuvar anlaşmaları yaparak kısa sürede muadil kuruluşlarla rekabet edebilir bir seviyeye gelmiş.
 

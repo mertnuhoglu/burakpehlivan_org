@@ -6,7 +6,7 @@ tags: ["Almanya", "coronavirus", "koranavirüs", "sağlık", "Türkiye", "Yaşam
 type: post
 ---
 
-\[caption id="attachment\_7974" align="alignnone" width="493"\]![](http://burakpehlivan.org/wp-content/uploads/2020/03/victory-bright.jpg) Yeni tip Koronavirüs’ten kaynaklanan COVID-19 Dünya’yı kasıp kavururken, geçen hafta Dünya Sağlık Örgütü bu hastalığı pandemik, yani küresel düzeyde yayılan salgın hastalık olarak ilan etti ve bu karar sonrasında Dünya’nın birçok ülkesinde, hükümetlerin bu hastalığa karşı aldıkları önlemler hızlandı ve sertleşti. \[/caption\]
+\[caption id="attachment\_7974" align="alignnone" width="493"\]![](https://burakpehlivan.org/wp-content/uploads/2020/03/victory-bright.jpg) Yeni tip Koronavirüs’ten kaynaklanan COVID-19 Dünya’yı kasıp kavururken, geçen hafta Dünya Sağlık Örgütü bu hastalığı pandemik, yani küresel düzeyde yayılan salgın hastalık olarak ilan etti ve bu karar sonrasında Dünya’nın birçok ülkesinde, hükümetlerin bu hastalığa karşı aldıkları önlemler hızlandı ve sertleşti. \[/caption\]
 
 İlk kez Çin’in Wuhan kentinde ortaya çıkan bu salgının merkezi şu an Avrupa ve özellikle de İtalya. Salgının ilk günlerinde Çin’in, virüsün varlığını örtbas etmesi ve Dünya’nın bu tehlikeli virüs ve yol açtığı hastalıktan çok geç haberi olması ne yazık ki hastalığın bugün tüm Dünya’ya yayılmasının önünü açtı.  Şu an itibarıyla 120’den fazla ülkede bu virüse yakalanmış hasta tespit edilirken, Antarktika hariç tüm kıtalarda bu hastalığa rastlanıyor ve öyle görülüyor ki, normal gribe göre bulaşıcılığı da ölümcüllüğü de çok yüksek olan bu hastalıkla mücadele henüz yeni başlıyor.
 

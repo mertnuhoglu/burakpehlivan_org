@@ -6,7 +6,7 @@ tags: ["Genel", "Hasan Kamil Hayali", "hazırgiyim", "Hüseyin Öztürk", "İlke
 type: post
 ---
 
-[![DSCN0006](http://burakpehlivan.org/wp-content/uploads/2016/01/DSCN0006.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/01/DSCN0006.jpg)
+[![DSCN0006](https://burakpehlivan.org/wp-content/uploads/2016/01/DSCN0006.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/01/DSCN0006.jpg)
 
 Türkiye’nin gönüllülük esasına göre kurulmuş en büyük işadamı organizasyonu olan ve bünyesindeki 183 işadamı derneği, 26 federasyon ve 40 binden fazla firmayla, Türkiye'nin tarım ve kamu hariç istihdamının %55’ini, enerji dışı dış ticaretinin ise %83’ünü gerçekleştiren TÜRKONFED’in başkan yardımcısı Hasan Kamil Hayali ile Türkiye Moda ve Hazırgiyim Federasyonu başkanı Hüseyin Öztürk, Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) genel merkezine bir çalışma ziyareti gerçekleştirdi.
 
@@ -26,4 +26,4 @@ Türkonfed başkan yardımcısı ve USTO Türkiye temsilcisi Hasan Kamil Hayali,
 
 TÜRKONFED başkan yardımcısı ve USTO Türkiye resmi temsilcisi Hasan Kamil Hayali ile Türkiye Moda ve Hazırgiyim Federasyonu başkanı Hüseyin Öztürk’ün TUİD’e yaptıkları çalışma ziyareti, hatıra fotoğrafı çekilmesiyle sona erdi.
 
-[![DSCN9990](http://burakpehlivan.org/wp-content/uploads/2016/01/DSCN9990.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/01/DSCN9990.jpg)
+[![DSCN9990](https://burakpehlivan.org/wp-content/uploads/2016/01/DSCN9990.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/01/DSCN9990.jpg)

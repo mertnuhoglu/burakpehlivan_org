@@ -6,7 +6,7 @@ tags: ["Aziz Şimşek; Vladimir Şelkunov", "Batur Bayman", "Can Sirman", "Düny
 type: post
 ---
 
-[![DSCN9708](http://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9708.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9708.jpg)
+[![DSCN9708](https://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9708.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9708.jpg)
 Ukrayna’da uluslararası tahkim yetkisine sahip  ve Paris merkezli olarak 127 farklı ülkede faaliyet gösteren Uluslararası Ticaret Odası’nın(ICC) Kiev’deki genel merkezinde ICC ile Türk Ukrayna İşadamları Derneği(TUİD) heyetleri arasında bir toplantı gerçekleşti. Heyetler arası görüşmeye, Ukrayna tarafından ICC Ukrayna Başkanı Vladimir Şelkunov ve yönetim kurulu üyeleri katılırken, toplantıdaTürk tarafını ise TUİD yönetim kurulu başkanı Vekili Burak Pehlivan, yönetim kurulu üyeleri Aziz Şimşek, Oğuzhan Şen, Can Sirman derneğin Odesa Temsilcisi Batur Bayman, genel sekreter Ali Kunt’un yanı sıra Ukrayna’daki en büyük Türk bankasının genel müdürü Onur Anlıatamer temsil etti.
 
 Toplantının açılış konuşmasını yapan ev sahibi kurumun başkanı Vladimir Şelkunov, ICC Ukrayna’nın, Bağımsız Devletler Topluluğu coğrafyasında kurulan ilk ICC milli komitesi olduğunu, 1998 yılından beri Ukrayna’da, siyasetten bağımsız olarak, Ukrayna İş Dünyası için lobi faaliyetlerinde bulunduklarını belirtti. Şelkunov, “Ukrayna’nın en önde gelen firmalarından oluşan 300’ün üzerinde üyemiz var, ülkenin tüm şehirlerinde örgütlüyüz, uluslararası seviyede her yıl en az 6 iş foruma düzenliyoruz, Ukrayna firmalarının dışa açılan kapısı olma misyonumuz özellikle ülkenin içinde bulunduğunu bu zor dönemde daha da önem kazanıyor” dedi. ICC Ukrayna Başkanı, Türk Ukrayna İşadamları Derneği’nin gücünü ve organizasyon yapma yeteneğini bildiklerini, bu anlamda TUİD ile işbirliğine gitme kararı aldıklarını, iki kurumun Herson şubeleri arasında imzalana memorandum sonrasında Kiev’deki merkezleri arasında da işbirliğine gitme iradesini Paris merkez’e danışarak gösterdiklerini hatırlatarak, yapılacak işbirliğinin hem Türk hem de Ukrayna iş camialarına hayırlı olmasını diledi.
@@ -17,8 +17,8 @@ Daha sonra söz alan TUİD yönetim kurulu üyesi ve Evyap Ukrayna genel müdür
 
 Uluslararası Ticaret Odası’nın Kiev Redutnaya Caddesinde bulunan binasında gerçekleşen toplantının sonunda, iki kurum arasındaki işbirliği protokolünü ICC Ukrayna başkanı Vladimir Şelkunov ile TUİD yönetim kurulu başkanvekili Burak Pehlivan imzaladı. Heyetlerarası görüşme hatıra fotoğrafı çekilmesiyle son buldu.
 
-[![DSCN9693](http://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9693.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9693.jpg)
+[![DSCN9693](https://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9693.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9693.jpg)
 
-![DSCN9635](http://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9635.jpg)
+![DSCN9635](https://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9635.jpg)
 
-[![DSCN9595](http://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9595.jpg)![DSCN9687](http://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9687.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9595.jpg)
+[![DSCN9595](https://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9595.jpg)![DSCN9687](https://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9687.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/11/DSCN9595.jpg)

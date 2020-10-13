@@ -6,7 +6,7 @@ tags: ["Faruk Ekinci", "Hasan Kamil Hayali", "Nuri As", "Selahattin Balkan", "Se
 type: post
 ---
 
-[![IMG-20160331-WA0005](http://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA00051.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA00051.jpg)
+[![IMG-20160331-WA0005](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA00051.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA00051.jpg)
 
 Türkiye’nin gönüllülük esasına göre kurulmuş olan en büyük işinsanları organizasyonu olan Türkonfed’in yönetim kurulu başkanı, TÜSİAD üyesi Tarkan Kadooğlu, Ukrayna’daki temaslarına, Türkonfed üyesi Uluslararası Türk Ukrayna İşadamları Derneğini(TUİD) ziyaret ederek başlarken, kendisine yine TÜSİAD üyeleri, Türkiye Irak İşadamları Derneği başkanı Selahattin Balkan, Ekinciler Holding yönetim kurulu başkanı Faruk Ekinci, Türkonfed yönetim kurulu üyesi ve Aves Holding yönetim kurulu başkanı Senan İdin, Türkonfed üyesi, Gaziantepli işadamı Mehmet Zeki Yardımcı ile Türkonfed başkan yardımcısı ve Ukrayna Sanayi ve Ticaret Odası Türkiye resmi temsilcisi Hasan Kamil Hayali de eşlik etti.
 
@@ -35,4 +35,4 @@ Son olarak söz alan Türkonfed yönetim kurulu üyesi ve Aves Holding yönetim 
 
 Türkonfed heyetinin, büyükelçi Tezel tarafından kabulü, hatıra fotoğrafı çekilmesiyle sona ererken. Türkonfed başkanı Tarkan Kadooğlu, Kırım Türkleri’nin efsanevi lideri, Ukrayna Parlamentosu milletvekili ve Nobel Barış ödülü adayı Mustafa Cemiloğlu ile bir de görüşme gerçekleştirdi.
 
-![IMG-20160331-WA0006](http://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0006.jpg) [![IMG-20160331-WA0010](http://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0010.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0010.jpg) [![IMG-20160331-WA0003](http://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0003.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0003.jpg)
+![IMG-20160331-WA0006](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0006.jpg) [![IMG-20160331-WA0010](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0010.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0010.jpg) [![IMG-20160331-WA0003](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0003.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0003.jpg)

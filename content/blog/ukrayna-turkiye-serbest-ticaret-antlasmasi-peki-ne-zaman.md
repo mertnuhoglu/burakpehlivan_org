@@ -6,7 +6,7 @@ tags: ["Ekonomi", "erdogan", "Poroşenko", "Serbest Ticaret Antlaşması", "sta"
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/06/erdporo.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/06/erdporo.jpg)
 
 Ukrayna Cumhurbaşkanı Petro Poroşenko, bu hafta Türkiye ile Ukrayna arasındaki Yüksek Düzeyli Stratejik Konseyin 7. Toplantısına başkanlık etmek için İstanbul’a giderken, kendisini çok yoğun bir gündem bekliyordu.  Türkiye Ukrayna Yüksek düzeyli stratejik Konseyi 2011 yılında kurulmuş, ilk somut sonucu olarak o yıl iki ülke arasında vizeler kaldırılmıştı. Ancak, 2014 yılı sonrasında Ukrayna Türkiye ekonomik ve siyasi ilişkileri inanılmaz bir hızla gelişti, derinleşti, öyle ki bu dönemde Avrupa’da hiçbir iki ülke arasında böyle sıkı bir yakınlaşma gerçekleşmedi.
 

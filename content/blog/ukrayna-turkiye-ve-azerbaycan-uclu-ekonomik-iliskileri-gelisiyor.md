@@ -6,7 +6,7 @@ tags: ["Azerbaycan", "Cemal Yangın", "Kaya Karslı", "Mürsel Rüstemov", "Rüs
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/01/WhatsApp-Image-2018-01-28-at-23.49.52.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/01/WhatsApp-Image-2018-01-28-at-23.49.52.jpeg)
 
 
 Azerbaycan Türkiye İşadamları Derneği(ATİB) yönetim kurulu başkanı Cemal Yangın ve başkan yardımcısı Mürsel Rüstemov, yönetim kurulu üyeleri Kaya Karslı ve Refik Karayev ile Selahattin Atalay’ın yer aldığı Azerbaycan Türk iş dünyası heyeti, Uluslararası Türk Ukrayna İşadamları Derneği’nin(TUİD) davetlisi olarak, Ukrayna’nın başkenti Kiev’e bir çalışma ziyareti gerçekleştirdi. Heyet ilk olarak, TUİD genel merkezini ziyaret ederken, burada TUİD başkanı Burak Pehlivan ile Ukrayna Azerbaycan Sanayici ve İşadamları Birliği başkanı Ali Aliyev ve Rus Türk İşadamları Birliği(RTİB) yönetim kurulu üyesi Abdurrahman Baytaş heyeti karşıladı.
@@ -39,4 +39,4 @@ ATİB heyeti son olarak Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Teze
 
 www.tuid.org.ua
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9063-2-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9068-4-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9073-7-Копировать.jpg)  ![](http://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9111-22-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9122-30-Копировать.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9126-31-Копировать.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9063-2-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9068-4-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9073-7-Копировать.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9111-22-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9122-30-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2018/01/IMG_9126-31-Копировать.jpg)

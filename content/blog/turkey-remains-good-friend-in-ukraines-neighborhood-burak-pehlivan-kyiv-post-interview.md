@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Ekonomi", "Ilya Timtchenko", "Olena Gordiienko", "turk
 type: post
 ---
 
-[![erdogan-prime-minister-visit-ukraine](http://burakpehlivan.org/wp-content/uploads/2015/10/erdogan-prime-minister-visit-ukraine2.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/10/erdogan-prime-minister-visit-ukraine2.jpg)
+[![erdogan-prime-minister-visit-ukraine](https://burakpehlivan.org/wp-content/uploads/2015/10/erdogan-prime-minister-visit-ukraine2.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/10/erdogan-prime-minister-visit-ukraine2.jpg)
 _**The text below is summary of the Burak Pehlivan’s interview by Olena Gordiienko Kyiv Post staff writer and includes wide part of the article of Olena Gordiienko and Ilya Timtchenko about Turkey Ukraine economic relations.**_
 
 Turkey and Ukraine are heading in the same directions in some ways: Both want to join or integrate more closely with the European Union. Both are transit routes between East and West. And both still have improvements to make in democracy.
@@ -36,7 +36,7 @@ Burak Pehlivan, vice chairman of the International Turkish-Ukrainian Business As
 Turkey used its comparative advantage to produce anything from cars, TV’s, to refrigerators and furniture instead of concentrating only on agriculture. With its domestic automotive factories alone, Turkey now produces more than 1 million vehicles a year and is now one of the most important hubs in Europe in spare parts production.
 EU investors benefited since exporting from Turkey to the EU is tax-free. When the cheap labor of Turkish citizens amounted to a gross domestic product per capita of $2,000, similar to where Ukraine is now, this was a green light for European investors.
 
-![](http://burakpehlivan.org/wp-content/uploads/2015/10/original.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2015/10/original.jpg)
 _Burak Pehlivan, vice chairman of the International Turkish-Ukrainian Business Association._
 
 In two decades that per capita figure reached $10,000.

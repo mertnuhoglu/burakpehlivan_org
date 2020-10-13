@@ -26,7 +26,7 @@ type: post
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/07/Ekran-Resmi-2018-07-12-09.25.11.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/07/Ekran-Resmi-2018-07-12-09.25.11.png)
 
 9 Temmuz'da Ankara, dünyanın farklı coğrafyasından devlet başkanlarından meclis başkanlarına bir çok önemli ismi ağırladı. Cumhurbaşkanı Recep Tayyip Erdoğan'ın yemin töreninde yer alan liderler arasında en dikkat çeken isimlerden biri Ukrayna Başbakanı Volodimir Groysman'dı. Son yıllarda Kiev-Ankara arasında hızla gelişen siyasi ve ekonomik yakınlaşmanın işareti olan bu ziyaret öncesinde Groysman'ın başında bulunduğu Ukrayna Bakanlar Kurulu, önemli bir atama gerçekleştirdi. Ukrayna'nın en büyük iş vereni olarak bilinen bir şirketin yönetimine Türk bir ismi aldı.
 
@@ -34,7 +34,7 @@ Bu isim Şevki Acuner.
 
 Bilindiği üzere Ukrayna'daki yerel ve ulusal şirketlerin yönetim katı, Türk profesyonellere emanet edilmiş durumda. Bu isimler arasında en dikkat çekenlerden birisi de Şevki Acuner. 12.1 milyar euro ile ülkenin en büyük yabancı sermaye yatırımcısı olan Avrupa İmar ve Kalkınma Bankası’nın (EBRD) Ukrayna Genel Müdürlüğü görevini yapan Acuner, geçtiğimiz ay bu görevini tamamlamış ve EBRD’nin Londra ofisine dönmüştü. Ancak Kiev yönetimi, Acuner’in başarısından oldukça etkilendi ve ülkenin en önemli şirketinin yönetimine geçmesini teklif etti.
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/07/Ekran-Resmi-2018-07-11-23.44.57.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/07/Ekran-Resmi-2018-07-11-23.44.57.png)
 
 Dünyanın 6'ncı büyüğü
 
@@ -54,7 +54,7 @@ Ukrayna’nın doğusundaki gelişmeleri denetleyen Avrupa Güvenlik ve İşbirl
 
 Son olarak bu yılın şubat ayında Ukrayna Ulusal Yatırım Konseyi'ne de Turkcell Yönetim Kurulu Başkanı Ahmet Akça atanmıştı.
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/07/WhatsApp-Image-2018-07-11-at-10.48.55-842x1024.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/07/WhatsApp-Image-2018-07-11-at-10.48.55-842x1024.jpeg)
 
 Ukrayna ile ticari ilişkiler hızla gelişiyor.
 

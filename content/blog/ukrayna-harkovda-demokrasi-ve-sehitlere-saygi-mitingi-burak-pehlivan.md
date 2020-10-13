@@ -6,7 +6,7 @@ tags: ["Ferit Alibey", "Genel", "Harkov", "Müsiad Ukrayna", "Nurettin Topçuoğ
 type: post
 ---
 
-[![IMG_1269](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1269.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1269.jpg)
+[![IMG_1269](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1269.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1269.jpg)
 
 
 
@@ -31,4 +31,4 @@ Yalnız organizasyon için  değil, izinlerin alınmasındaki yoğun çabaları
 
 
 
- [![IMG_1053](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1053.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1053.jpg) ![IMG_0969](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_0969.jpg)[![IMG_1096](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1096.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1096.jpg) [![IMG_1103](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1103.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1103.jpg) [![IMG_1172](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1172.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1172.jpg) [![IMG_1201](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1201.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1201.jpg) [![IMG_1208](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1208.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1208.jpg) [![IMG_1252](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1252.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1252.jpg)
+ [![IMG_1053](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1053.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1053.jpg) ![IMG_0969](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_0969.jpg)[![IMG_1096](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1096.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1096.jpg) [![IMG_1103](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1103.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1103.jpg) [![IMG_1172](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1172.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1172.jpg) [![IMG_1201](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1201.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1201.jpg) [![IMG_1208](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1208.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1208.jpg) [![IMG_1252](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1252.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/08/IMG_1252.jpg)

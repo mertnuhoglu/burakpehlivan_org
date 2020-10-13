@@ -6,7 +6,7 @@ tags: ["hakan yılmaz", "THY", "thy tuid anlaşma", "THY Ukrayna", "TUİD (Türk
 type: post
 ---
 
-[![thy-ukraynaya-haftada-50-sefer-gerceklestiriyor](http://burakpehlivan.org/wp-content/uploads/2013/01/thy-ukraynaya-haftada-50-sefer-gerceklestiriyor.jpg)](http://burakpehlivan.org/1156/thy-ukraynaya-haftada-50-sefer-gerceklestiriyor/thy-ukraynaya-haftada-50-sefer-gerceklestiriyor/)
+[![thy-ukraynaya-haftada-50-sefer-gerceklestiriyor](https://burakpehlivan.org/wp-content/uploads/2013/01/thy-ukraynaya-haftada-50-sefer-gerceklestiriyor.jpg)](https://burakpehlivan.org/1156/thy-ukraynaya-haftada-50-sefer-gerceklestiriyor/thy-ukraynaya-haftada-50-sefer-gerceklestiriyor/)
 
 THY Ukrayna Ülke Müdürü Hakan Yılmaz, Türk Ukrayna İşadamları Derneği(TUİD) Genel Merkezi’ne nezaket ziyaretinde bulundu. TUİD ziyaretinde, kendisine THY Ukrayna Pazarlama Müdürü Dinçer Sayıcı’nın da eşlik ettiği Hakan Yılmaz TUİD’in başarılı çalışmalarından dolayı memnuniyetini dile getirirken, THY’nin Ukrayna’daki konumu hakkında açıklamalarda bulundu. Görüşmede ayrıca THY ve TUİD arasında imzalanacak Turkish Corporate Club antlaşmasına da değinildi.
 

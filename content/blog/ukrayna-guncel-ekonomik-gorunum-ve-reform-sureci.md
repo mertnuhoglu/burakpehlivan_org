@@ -6,7 +6,7 @@ tags: ["Ekonomi", "imf", "IMF gözlem heyeti", "tarım", "Ukrayna", "Ukrayna eko
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/05/IMF.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/05/IMF.jpg)
 
 
 
@@ -36,7 +36,7 @@ Ukrayna otoritelerinin, yukarıda ifade ettiğimiz başarılı çalışmalarına
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/05/1346216_342f81a5bae890b78c4d00ae85e4dae1_640x640.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/05/1346216_342f81a5bae890b78c4d00ae85e4dae1_640x640.jpg)
 
 
 
@@ -61,7 +61,7 @@ AvrupaMeydan’ı sonrasında geçmiş rejimin neredeyse hiçbir üst düzey yö
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/05/2b_arazileri.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/05/2b_arazileri.jpg)
 
 
 

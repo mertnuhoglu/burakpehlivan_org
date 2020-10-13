@@ -6,7 +6,7 @@ tags: ["altyapı", "Baltık İş Forumu", "Batlık", "Ekonomi", "Karadeniz", "li
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/21992914_1396053777130842_75536010978945261_o-4.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/21992914_1396053777130842_75536010978945261_o-4.jpg)
 
 
 
@@ -64,4 +64,4 @@ Karadeniz’in iki yakasındaki yatırımlar tamamlandığında, Kuzey Güney ar
 \*Forum gerçekleştikten sonra, Filyos Limanı’nın temel atma töreni gerçekleştirilirken, Bakü Tiflis Karz demiryolu hattının ilk deneme seferi yapıldı.
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-19.07.38.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-19.07.38.png)

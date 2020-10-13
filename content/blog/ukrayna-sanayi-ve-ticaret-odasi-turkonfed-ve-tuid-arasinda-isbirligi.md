@@ -6,7 +6,7 @@ tags: ["işbirliği", "İtalya Ukrayna İşadamları Derneği", "Süleyman Onat�
 type: post
 ---
 
-[![DSCN0343](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0343.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0343.jpg)
+[![DSCN0343](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0343.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0343.jpg)
 Türkiye’de gönüllülük esasına göre kurulmuş en büyük işadamı organizasyonu olan ve 40 bini aşkın üye firmayla, Türkiye’de kamu ve tarım dışı istihdamın %55’ini oluşturan ve yine Türkiye’nin enerji hariç dış ticaretinin %83’ünü gerçekleştiren TÜRKONFED’in başkanı Süleyman Onatça ve beraberindekiler, Ukrayna çalışma seyahatinin son görüşmesini Ukrayna Sanayi ve Ticaret Odasında gerçekleştirdi. Görüşmeye TUİD yönetim kurulu üyelerinin yanı sıra, İtalya Ukrayna İşadamları Derneği(AIU) Başkan yardımcısı Vincenzo Scocca da katıldı.
 
 Ukrayna Sanayi ve Ticaret Odası’nın genel merkezinde gerçekleşen ziyarette, TÜRKONFED başkanı Süleyman Onatça, Ukrayna’ya, Türkiye’nin özellikle Avrupa Birliği ile Gümrük Birliği sonrasında yaşadığı deneyimleri paylaşmak adına geldiklerini belirterek, sağlıklı rekabet ortamının oluşturulmasının, KOBİ’lerin desteklenmesinin ve hukukun üstünlüğünün sağlanmasının hem Ukraynalı hem de yabancı yatırımcılar açısından önemine dikkat çekti. Onatça, Ukrayna’daki temaslarından çok memnun kaldıklarını, Ukrayna’da gördüklerini konukseverlik ve ilgiden etkilendiklerini belirterek, kendisinin artık Ukrayna’nın, Türkiye’deki gönüllü elçilerinden biri olduğunu ifade ederek, sözlerini tamamladı.
@@ -17,21 +17,21 @@ TUİD yönetim kurulu başkanvekili Burak Pehlivan, Sanayi ve Ticaret Odası’n
 
 Görüşme sonrası katılımcılar aile fotoğrafı çektirirken, TÜRKONFED başkanı Süleyman Onatça ve TUİD yönetim kurulu başkanı Burak Pehlivan Ukrayna televizyonuna röportaj verdiler.
 
-![DSCN0326](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0326.jpg)
+![DSCN0326](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0326.jpg)
 
-![DSCN0317](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0317.jpg)
+![DSCN0317](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0317.jpg)
 
-[![DSCN0339](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0339.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0339.jpg)
+[![DSCN0339](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0339.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0339.jpg)
 
-[![DSCN0320](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0320.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0320.jpg)
+[![DSCN0320](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0320.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0320.jpg)
 
-[![DSCN0301](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0301.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0301.jpg)
+[![DSCN0301](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0301.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0301.jpg)
 
-[![IMG_0094](http://burakpehlivan.org/wp-content/uploads/2015/05/IMG_0094.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/IMG_0094.jpg)
+[![IMG_0094](https://burakpehlivan.org/wp-content/uploads/2015/05/IMG_0094.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/IMG_0094.jpg)
 
-![DSCN0319](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0319.jpg)
+![DSCN0319](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0319.jpg)
 
-![DSCN0306](http://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0306.jpg)
+![DSCN0306](https://burakpehlivan.org/wp-content/uploads/2015/05/DSCN0306.jpg)
 ---
 ### Comments:
 #### 

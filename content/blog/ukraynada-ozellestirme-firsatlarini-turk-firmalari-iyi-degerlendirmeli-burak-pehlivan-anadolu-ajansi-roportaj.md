@@ -6,7 +6,7 @@ tags: ["Anadolu Ajansı", "Burak Pehlivan", "Dış Ticaret", "Ekonomi", "ozelles
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/08/Screen-Shot-2017-08-04-at-23.17.19.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/08/Screen-Shot-2017-08-04-at-23.17.19.png)
 
 
 

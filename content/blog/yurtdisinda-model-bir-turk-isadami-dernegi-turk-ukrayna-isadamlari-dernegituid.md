@@ -8,7 +8,7 @@ type: post
 
  
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/05/ukrayna-universiteler-avantajlari-kopya.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/05/ukrayna-universiteler-avantajlari-kopya.jpg)
 
 Uluslararası Türk Ukrayna İşadamları Derneği'nin(TUİD), yönetimine 2011 yılında seçildiğimizde sistemi, altyapısı olan, saygın bir işadamı derneği devralmıştık. Hedefimiz varolan sistemi daha da geliştirmek, yalnız Ukrayna sınırları içerisinde değil, yurtdışındaki Türk işadamı dernekleri arasında da model olabilecek bir yapıyı oluşturmaktı. O zaman için oldukça iddialı görülen bu hedefimizin üzerinden 6 yıl ve üç seçim dönemi geçti. TUİD'in 8. dönemini  tamamlıyoruz. Bu haftasonu üyelerimizden Kiev Intercontinental Otel'de olağan seçimli genel kurulumuz yapılacak. 6., 7. ve 8. dönemlerin hepsinde başkanvekili olarak, 8. dönemin ikinci yarsında ise başkan olarak TUİD'de görev aldım. Bu süreçte Ukrayna'da bir devrim, toprak kayıpları, düşük yoğunluklu savaş, büyük bir ekonomik kriz ve tüm bunlara bağlı dolar bazında GSMH'nin %50 daraldığına tanıkılık ettik. Ancak TUİD, Ukrayna Türk iş dünyasının büyük fedakarlıklarıyla daha da büyüdü, güçlendi. 6 yıl önce koyduğumuz hedefleri gerçekleştirme noktasında ise mahcup olmadık. Bugün aralarında Dış Ekonomik İlişkiler Kurulu'nun(DEİK),  Türkiye'nin gönüllülük esasına göre örgütlenmiş en büyük iş insanları organizasyonu olan Türkonfed'in ve hatta Ukrayna 'da faaliyette bulunan birçok yabancı ülke işadamları derneğini de bulunduğu kurumlar tarafından, TUİD örnek bir işadamları derneği olarak gösteriliyor.
 

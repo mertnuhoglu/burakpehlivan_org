@@ -6,7 +6,7 @@ tags: ["ACC", "AIU", "Alman Ukrayna İşadamları Derneği", "British Ukrainian 
 type: post
 ---
 
-[![tdu16](http://burakpehlivan.org/wp-content/uploads/2015/05/tdu16.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/tdu16.jpg)
+[![tdu16](https://burakpehlivan.org/wp-content/uploads/2015/05/tdu16.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/tdu16.jpg)
 
 Ukrayna’da çok sayıda yabancı ülke işadamı derneği var, ancak bunlardan ikisi gerek üye sayıları ve nitelikleri, gerekse konumlanmalarıyla diğerlerinden ayrışıyorlar. Bunlar American Chamber of Commerce(ACC) ve European Business Association(EBA). Bu iki derneğin birine veya ikisine birden ülkede iş yapan çokuluslu firmalar, Ukrayna’nın büyük sermayeli firmaları, bu firmalarla iş yapmak isteyen özellikle hukuk, muhasebe, gümrük gibi alanlardaki şirketler üye oluyorlar. Bu dernekler bünyelerinde oluşturdukları, kendi çalışanlarının yanı sıra üye firmaların alanında uzman yöneticilerinin de görev yaptıkları sektörel komiteler aracılığıyla, Ukrayna devlet makamlarıyla sürekli ve güçlü ilişkiler yürütürken, üyelerinin ve genel olarak ise iş dünyasının ihtiyaç duyduğu yasaların çıkması, ülkede daha iş dostu bir ortamın oluşması ve genel yatırım ikliminin gelişmesi için çaba yürütüyorlar. Bu iki çatı derneğin yanı sıra ülkedeki Alman, İtalyan, Türk, Fransız, İngiliz, Leh ve diğer milletlerden işadamlarının kurmuş oldukları dernekler de var. Ancak Türk, İngiliz ve Alman işadamları dernekleri, yaptıkları organizasyonlarla diğer milletlerin işadamı derneklerinden birkaç adım önde yer alıyorlar.
 
@@ -35,7 +35,7 @@ _Giriş Ücreti_: 400 €. Üyelik aidatlarının firmaların yarattığı istih
 
 Yönetim Kurulu 16 kişiden oluşuyor. Derneğin maaşlı eleman sayısı ise 38. 22 sektör komitesi ve 3 çalışma grubu faaliyet gösteriyor. Başkanları Çek Cumhuriyeti vatandaşı, ülkenin en büyük ve prestijli aracı kurumu olan Dragon Capital’in sahibi Tomas Filia. Filia reformlara ilişkin görüş ve düşüncelerini en üst seviyelerde dile getirmekten çekinmeyen ve bu konulardaki eleştirilerini zaman zaman yazdığı makalelerle de ortaya koyan bir isim.
 
-[![IMG_3276](http://burakpehlivan.org/wp-content/uploads/2015/05/IMG_3276.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/IMG_3276.jpg)
+[![IMG_3276](https://burakpehlivan.org/wp-content/uploads/2015/05/IMG_3276.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/IMG_3276.jpg)
 
 
 ACC
@@ -60,7 +60,7 @@ Her üye girişte 500 $’lık giriş aidatının ödüyor. Daha sonra firmalar�
 
 EBA ve ACC misyonları gereği yabancı sermayenin yönetim organlarıyla ilişkilerini düzenlemeye çalışan, vergi, gümrük, rekabet gibi alanlarda komisyon oluşturan ve karar alıcılar üzerinde lobi oluşturan dernekler.
 
-[![tdu22](http://burakpehlivan.org/wp-content/uploads/2015/05/tdu22.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/tdu22.jpg)
+[![tdu22](https://burakpehlivan.org/wp-content/uploads/2015/05/tdu22.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/tdu22.jpg)
 
 
 DWK DeutscherWirtshaftsklub-Alman Ekonomi Klubü Ukrayna
@@ -107,7 +107,7 @@ DWK’nın üyelerine vermeyi taahhüt ettiği hizmetler şunlar:
 
 
 
-[![tdu1](http://burakpehlivan.org/wp-content/uploads/2015/05/tdu1.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/tdu1.jpg)
+[![tdu1](https://burakpehlivan.org/wp-content/uploads/2015/05/tdu1.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/tdu1.jpg)
 
 
 NBNU The Nordic Business Network Ukraine
@@ -116,7 +116,7 @@ NBNU The Nordic Business Network Ukraine
 
 NBNU, Ukrayna’da iş yapan İskandinav ülkeleri, Norveç, İsveç, Finlandiya, Danimarka ve bir başka Kuzey ülkesi İzlanda işadamları tarafından 13 Aralık 2010 yılında kurulmuştu. NBNU, henüz hukiki bir boyut kazanmamış durumdayken, 2013 yılından itibaren dağılma sürecine girdi. Bugün Norveç, İsveç gibi ülkelerin işadamları farklı klüplerin ya da ticaret odalarının çatısı altında bulunuyolar.
 
-[![kyivpost-article](http://burakpehlivan.org/wp-content/uploads/2015/05/kyivpost-article.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/05/kyivpost-article.jpg)
+[![kyivpost-article](https://burakpehlivan.org/wp-content/uploads/2015/05/kyivpost-article.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/05/kyivpost-article.jpg)
 
 
 AIU İtalya Ukrayna İşadamları Derneği
@@ -125,7 +125,7 @@ AIU İtalya Ukrayna İşadamları Derneği
 
 Derneğin 100’e yakın üyesi, Kiev merkezin yanı sıra, Lvov, Odesa ve Roma’da temsilcilikleri var. İtalyan iş dünyası krizden çok etkilendi ve dernekte ciddi bir aidat toplayamama sıkıntısı oluştu. Son bir yıldır faaliyetlerini Alman işadamları derneğinin de yapmış olduğu gibi hemen hemen durdurmuş durumdalar.. TUİD çok iyi ilişkilerde bulunduğu bir başka dernek. Başkanları, iyi bir Türk dostu Giuseppe Laghezza Masci.
 
-[![DSCN1087](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1087.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1087.jpg)
+[![DSCN1087](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1087.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/02/DSCN1087.jpg)
 
 
 Ukrayna Sanayi ve Ticaret Odası(TPPU)

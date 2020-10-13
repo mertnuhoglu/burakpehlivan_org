@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Erdoğan’s visit", "Kyiv", "Kyiv Post", "Politika", 
 type: post
 ---
 
-[![BRITAIN-NATO-SUMMIT](http://burakpehlivan.org/wp-content/uploads/2015/03/burak-pehlivan-erdogans-visit-to-ukraine-may-be-substantial-milestone-in-relations-between-two-countries.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/03/burak-pehlivan-erdogans-visit-to-ukraine-may-be-substantial-milestone-in-relations-between-two-countries.jpg)
+[![BRITAIN-NATO-SUMMIT](https://burakpehlivan.org/wp-content/uploads/2015/03/burak-pehlivan-erdogans-visit-to-ukraine-may-be-substantial-milestone-in-relations-between-two-countries.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/03/burak-pehlivan-erdogans-visit-to-ukraine-may-be-substantial-milestone-in-relations-between-two-countries.jpg)
 Turkish President Recep Tayyip Erdoğan will pay an official visit to Ukraine on March 20, with a broad delegation consisting of, among others, six major ministers from the cabinet and prominent businessmen of the country. This visit is considered as very important, because it shall be the first visit by high-ranking officials from Turkey to Ukraine, which intends to shape its future within the framework of unification with the European Union.
 
 The new Ukrainian government is willing to develop its economic and political relations with, not only the EU and North American countries, but also with its neighbors, mainly Turkey, and with the countries in Middle East, Africa and Far East as well. Similarly, Turkey intends to further strengthen its current good relations with Ukraine, its neighboring country in the Black Sea region.

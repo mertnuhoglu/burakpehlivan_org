@@ -6,7 +6,7 @@ tags: ["Azer Hudiyev", "Genel", "Sedat Bulut", "TUİD (Türk Ukrayna İşadamlar
 type: post
 ---
 
-[![dsc_7486](http://burakpehlivan.org/wp-content/uploads/2016/10/DSC_74861.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/10/DSC_74861.jpg)
+[![dsc_7486](https://burakpehlivan.org/wp-content/uploads/2016/10/DSC_74861.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/10/DSC_74861.jpg)
 
 
 
@@ -41,9 +41,9 @@ Kaynak: tuid.org.ua
 
 
 
-[![dsc_7485](http://burakpehlivan.org/wp-content/uploads/2016/10/DSC_7485.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/10/DSC_7485.jpg)
+[![dsc_7485](https://burakpehlivan.org/wp-content/uploads/2016/10/DSC_7485.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/10/DSC_7485.jpg)
 
 
 
 
-[![dsc_7489](http://burakpehlivan.org/wp-content/uploads/2016/10/DSC_7489.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/10/DSC_7489.jpg)
+[![dsc_7489](https://burakpehlivan.org/wp-content/uploads/2016/10/DSC_7489.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/10/DSC_7489.jpg)

@@ -6,7 +6,7 @@ tags: ["Amerika Birleşik Devletleri Uluslararası Kalkınma Ajansı", "imf", "O
 type: post
 ---
 
-[![DSCN05041](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN05041.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN05041.jpg)
+[![DSCN05041](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN05041.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN05041.jpg)
 
 Türkiye Cumhuriyeti Kiev Büyükelçiliği’nin koordinasyonunda, Ukrayna Dışişleri Bakanlığı, Amerika Birleşik Devletleri Uluslararası Kalkınma Ajansı(USAID) ve Amerika Ticaret Odası’nın(ACC) işbirliğinde, Türkiye’nin Kamu Özel Sektör İşbirliği alanındaki başarılı deneyimlerinin Ukrayna için pratik bir yol haritası olarak değerlendirilmesi amacıyla organize edilen ekonomi forumunda ben de konuşmacılardan biriydim. Türkiye Cumhuriyeti Ekonomi Bakanlığı, Türkiye Cumhuriyeti Kalkınma Bakanlığı, Devlet Havameydanları genel müdürlüğü gibi kuruluşlardan uzman isimlerin ve Türkiye’den özel sektör temsilcilerinin de yaptıkları sunumlarla katkıda bulundukları konferansta bir başka değerli katılımcı ise Ukrayna’nın en büyük yabancı yatırımcısı konumunda olan ve ülke ekonomisine bugüne kadar 5.1 miyar Euro’luk destek sağlayan Avrupa İmar ve Kalkınma Bankası’nın Ukrayna direktörü, kıdemli Türk bankacı Şevki Acuner’di. Orijinalini İngilizce olarak konferans katılımcılarıyla paylaştığım ve Türkiye’nin deneyimlerinin, Ukrayna için nasıl faydalı olabileceğini özetle anlatmaya çalıştığım konuşmamı burada paylaşıyorum.
 

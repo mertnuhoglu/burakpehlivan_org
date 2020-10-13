@@ -6,7 +6,7 @@ tags: ["ali bulut", "Aziz Şimşek", "Batur Bayman", "Çetin Yılmaz", "Ekonomi"
 type: post
 ---
 
-[![OLYMPUS DIGITAL CAMERA](http://burakpehlivan.org/wp-content/uploads/2016/03/1.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/1.jpg)
+[![OLYMPUS DIGITAL CAMERA](https://burakpehlivan.org/wp-content/uploads/2016/03/1.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/1.jpg)
 
 Türkiye ile Ukrayna arasında Serbest Ticaret Antlaşması(STA) müzakereleri 2007 yılından beri devam ediyor, neredeyse 10 yıl geçti.  Ukrayna bu süreçte AB ve Kanada ile serbest ticaret antlaşmalarını imzalarken, İsrail ile STA belli bir aşamaya geldi. Ukrayna'nın AB ile yaptığı STA 1 Ocak 2016 itibarıyla yürürlüğe girdi.  Bu antlaşma, Türk firmaları için ne yazık ki bazı riskleri de beraberinde getirdi. Ülkemizden, Ukrayna’ya ihraç edilen birçok ürün grubunda %12’ye kadar gümrük vergileri mevcut, buna karşılık benzer vergileri Polonyalı, Macar, Slovak üreticiler Ukrayna’ya gönderdikleri mallarda artık ödemeyecekler. Bu durumda, zaten çok düşük kar marjıyla çalışan ihracatçılarımız rekabette geri düşmemek için %10’lara varan indirimler yapmak ya da pazarı kaybetmek gibi bir ikilemle karşı karşıyalar.
 
@@ -24,4 +24,4 @@ TUİD olarak, geçtiğimiz yıl, Türkonfed’in ilk uluslararası federasyonunu
 
 
 
-[![OLYMPUS DIGITAL CAMERA](http://burakpehlivan.org/wp-content/uploads/2016/03/P1010530.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/P1010530.jpg) [![OLYMPUS DIGITAL CAMERA](http://burakpehlivan.org/wp-content/uploads/2016/03/P1010548.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/P1010548.jpg) [![OLYMPUS DIGITAL CAMERA](http://burakpehlivan.org/wp-content/uploads/2016/03/P1010566.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/P1010566.jpg) [![OLYMPUS DIGITAL CAMERA](http://burakpehlivan.org/wp-content/uploads/2016/03/P1010630.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/03/P1010630.jpg)
+[![OLYMPUS DIGITAL CAMERA](https://burakpehlivan.org/wp-content/uploads/2016/03/P1010530.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/P1010530.jpg) [![OLYMPUS DIGITAL CAMERA](https://burakpehlivan.org/wp-content/uploads/2016/03/P1010548.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/P1010548.jpg) [![OLYMPUS DIGITAL CAMERA](https://burakpehlivan.org/wp-content/uploads/2016/03/P1010566.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/P1010566.jpg) [![OLYMPUS DIGITAL CAMERA](https://burakpehlivan.org/wp-content/uploads/2016/03/P1010630.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/P1010630.jpg)

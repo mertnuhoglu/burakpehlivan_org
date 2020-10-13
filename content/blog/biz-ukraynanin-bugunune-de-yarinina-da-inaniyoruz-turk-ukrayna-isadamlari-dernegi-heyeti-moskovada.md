@@ -6,7 +6,7 @@ tags: ["Ali Demirel", "Aydın Adnan Sezgin", "Can Sirman", "daib", "Gökhan Tura
 type: post
 ---
 
-[![photo (1) (1)](http://burakpehlivan.org/wp-content/uploads/2013/12/photo-1-1.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/photo-1-1.jpg)
+[![photo (1) (1)](https://burakpehlivan.org/wp-content/uploads/2013/12/photo-1-1.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/photo-1-1.jpg)
 
 Rusya’ya, Doğu Avrupa Türk İşadamları Dernekleri Birliği (DAİB)projesi kapsamında bir seyahat düzenleyen **Türk Ukrayna İşadamları Derneği(TUİD) heyeti** temaslarına Türkiye Cumhuriyeti Moskova Büyükelçiliği’nde başlarken, burada **T.C Moskova Büyükelçisi Aydın Adnan Sezgin tarafından kabul edildi.** Görüşmede Büyükelçilik Müsteşarı Gökhan Turan ve Ticaret müşaviri Hakkı Karabörklü ile Rus Türk İşadamları Birliği başkanı Naki Karaaaslan da hazır bulundu.
 

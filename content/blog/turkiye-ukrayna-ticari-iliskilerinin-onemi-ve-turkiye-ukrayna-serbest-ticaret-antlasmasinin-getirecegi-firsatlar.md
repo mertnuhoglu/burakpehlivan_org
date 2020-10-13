@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "dış ticaret", "ebrd", "Ekonomi", "Serbest Ticaret Ant
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9998-59.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9998-59.jpg)
 
 Türkiye ve Ukrayna iki Karadeniz komşusu aynı zamanda stratejik partnerler ve bu stratejik partner sözünün içi boş değil. Bu ifadeyi haklı çıkaracak çok sayıda somut faktör var. İki ülke arasında vizeler 2011 yılında karşılıklı olarak kaldırılırken, 1 Haziran 2017’den bu yana Türkiye ve Ukrayna vatandaşları birbirlerini pasaportsuz olarak, kimlik kartlarıyla ziyaret edebiliyorlar. Türk vatandaşlarının dünyada bu şekilde ziyaret edebildikleri yalnızca 4 ülke varken, Ukraynalılar açısından bu imkan o dönemde yalnızca Türkiye ziyaretlerinde mümkündü.
 
@@ -34,4 +34,4 @@ Biz de Uluslararası Türk Ukrayna İşadamları Derneği olarak bu süreçte Uk
 
 Burak PEHLİVAN
 
-![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9842-2.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9846-4.jpg)  ![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9879-12.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9890-19.jpg)  ![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9918-32.jpg)    ![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9963-44.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9974-48.jpg)     ![](http://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9998-55.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9842-2.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9846-4.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9879-12.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9890-19.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9918-32.jpg)    ![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9963-44.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9974-48.jpg)     ![](https://burakpehlivan.org/wp-content/uploads/2019/11/IMG_9998-55.jpg)

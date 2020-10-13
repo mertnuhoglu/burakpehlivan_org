@@ -6,7 +6,7 @@ tags: ["Ali Rıza Koska", "Burak Pehlivan", "Cem Murat Aytaç", "doğu avrupa i�
 type: post
 ---
 
-[![](http://burakpehlivan.org/wp-content/uploads/2012/11/DSCN0266.jpg "DSCN0266")](http://burakpehlivan.org/wp-content/uploads/2012/11/DSCN0266.jpg)
+[![](https://burakpehlivan.org/wp-content/uploads/2012/11/DSCN0266.jpg "DSCN0266")](https://burakpehlivan.org/wp-content/uploads/2012/11/DSCN0266.jpg)
 
 Türk Ukrayna İşadamları Derneği, Doğu Avrupa’da yılın işadamı derneği ödülünü Bükreş’te düzenlenen bir tören ile aldı. Romanya Türk İşadamları Derneği Başkanı ve aynı zamanda DTİK Balkan Komitesi Başkanı Ömer Süsli, ödülü, TUİD Yönetim Kurulu Başkanı ve aynı zamanda Eczacıbaşı Holding’in maden grubu şirketi Esan’ın Rusya, Beyaz Rusya ve Ukrayna’dan sorumlu yöneticisi olan Cem Murat Aytaç’a, takdim etti. Türkiye Cumhuriyeti Bükreş Büyükelçisi Ömür Şölendil’in de onurlandırdığı gecede, TUİD başkanvekili Burak Pehlivan, TİAD eski başkanı Dr. Dursun Altınışık, Romanya Fenerbahçeliler Derneği Başkanı Mustafa Oksar, Romanya Galatasaraylılar Derneği Başkanı Ali Rıza Koska, Bükreş Ticaret Müşaviri Bahadır Necat, TİAD yönetim kurulu üyeleri, işadamları, Türk ve Romen basın mensupları da hazır bulundular.
 

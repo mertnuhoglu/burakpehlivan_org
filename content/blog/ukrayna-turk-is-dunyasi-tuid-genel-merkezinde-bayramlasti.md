@@ -6,7 +6,7 @@ tags: ["Belkıs Gürsel Güleç", "Berat Yıldız", "Emre Manav", "Hacı Bayram 
 type: post
 ---
 
-[![DSCN0068](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0068.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0068.jpg)
+[![DSCN0068](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0068.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/DSCN0068.jpg)
 
 Ukrayna’daki Türk işadamları, Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel’in de teşrifleriyle Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) genel merkezinde bayramlaştı. Ramazan bayramı bayramlaşmasına, işadamlarının yanı sıra, Türkiye Cumhuriyeti Başbakanlık TİKA Ukrayna program koordinatörü Hacı Bayram Bolat, büyükelçilik müsteşarları Uzay Göktürk ve Emre Manav, T.C. Kiev ticaret müşaviri Belkıs Gürsel Güleç, T.C. Kiev turizm ve tanıtma müşaviri Berat Yıldız, büyükelçilik başkatibi Okan Akbaş da katılım gösterdi.
 

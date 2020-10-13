@@ -6,6 +6,6 @@ tags: ["Ali Sami Behlül", "Ant Yapı Ukrayna", "Cem Murat Aytaç", "Credit Euro
 type: post
 ---
 
-[![ViberPC 4302014 84920 AM](http://burakpehlivan.org/wp-content/uploads/2014/04/ViberPC-4302014-84920-AM.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/04/ViberPC-4302014-84920-AM.jpg)
+[![ViberPC 4302014 84920 AM](https://burakpehlivan.org/wp-content/uploads/2014/04/ViberPC-4302014-84920-AM.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/04/ViberPC-4302014-84920-AM.jpg)
 CNNTürk’te Rıdvan Akar’ın Habere Dair Programı’nın konuğu Ukrayna Türk İş Dünyası’ydı. Murat Can Bilgincan’ın editörlüğünde, Hilmi Yasa’nın kamerasından Ukrayna’da farklı sektörlerde iş yapan Türk işadamları ülkedeki son ekonomik gelişmeleri ve Türk İş Dünyası’nın yaşadığı sorunları değerlendirdiler. Programda, Uluslararası Türk Ukrayna İşadamları Derneği (TUİD) Başkanı Cem Murat Aytaç, başkanvekili Burak Pehlivan, yönetim kurulu üyesi Sedat Bulut, ülkedeki en büyük Türk bankası Credit Europe’un genel müdürü Onur Anlıatamer ve Ukrayna’nın en yüksek binasını inşa eden Ant Yapı’nın proje koordinatörü Ali Sami Behlül’ün görüşlerine yer verildi.
 

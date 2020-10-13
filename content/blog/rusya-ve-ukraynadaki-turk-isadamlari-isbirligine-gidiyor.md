@@ -6,7 +6,7 @@ tags: ["Barbaros Özsaygılı", "daib", "Doğu Avrupa Türk İşadamları Dernek
 type: post
 ---
 
-[![IMG_1675](http://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1675.png)](http://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1675.png)
+[![IMG_1675](https://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1675.png)](https://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1675.png)
 
 Türk Ukrayna İşadamları Derneği(TUİD) heyeti, Moskava’daki temasları kapsamında Rus Türk İşadamları Birliği(RTİB) Genel Merkezi’ni ziyaret etti. Ziyarette iki işadamı derneği arasında işbirliğine gidilmesi kararı alındı.
 
@@ -28,8 +28,8 @@ RTİB yönetim kurulu başkanı Naki Karaaslan ise Rusya’daki 10 milyar dolar�
 
 Ziyarette, Doğu Avrupa’daki Türk işadamları derneklerinin başkanlarının yılda birkaç kez periyodik olarak farklı ülkelerde biraraya gelmesi konusunda heyetler arasında görüş birliği oluşurken, ziyaret TUİD delegasyonu ile RTİB başkanı Naki Karaaslan, yönetim kurulu üyeleri Barbaros Özsaygılı, Ulaş Çeliksular ve RTİB genel sekreteri büyükelçi Vladimir Solotsinski’nin çektirdiği anı fotoğrafı ile sona erdi.
 
-[![IMG_1665](http://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1665.png)](http://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1665.png)
+[![IMG_1665](https://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1665.png)](https://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1665.png)
 
-[![IMG_1666](http://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1666.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1666.jpg)
+[![IMG_1666](https://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1666.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1666.jpg)
 
-[![IMG_1667](http://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1667.jpg)](http://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1667.jpg)
+[![IMG_1667](https://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1667.jpg)](https://burakpehlivan.org/wp-content/uploads/2013/12/IMG_1667.jpg)

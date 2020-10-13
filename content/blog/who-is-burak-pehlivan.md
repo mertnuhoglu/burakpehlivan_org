@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "English", "Genel", "International Turkish Ukrainian Bu
 type: post
 ---
 
-![10835242_10152979344245649_6080180720382015251_o](http://burakpehlivan.org/wp-content/uploads/2016/11/10835242_10152979344245649_6080180720382015251_o.jpg)
+![10835242_10152979344245649_6080180720382015251_o](https://burakpehlivan.org/wp-content/uploads/2016/11/10835242_10152979344245649_6080180720382015251_o.jpg)
 
 
 

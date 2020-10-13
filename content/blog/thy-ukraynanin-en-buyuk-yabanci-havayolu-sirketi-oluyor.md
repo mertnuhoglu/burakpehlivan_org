@@ -6,7 +6,7 @@ tags: ["Citibank Ukrayna", "Georgetown Üniversitesi", "John Teft", "Kevin Husto
 type: post
 ---
 
-[![DSCN5196](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5196.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5196/)
+[![DSCN5196](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5196.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5196/)
 
 Türk Havayollları Ukrayna Ülke Müdürü Hakan Yılmaz, Georgetown Üniversitesi Mezunlar Derneği ve Türk Ukrayna İşadamları Derneği (TUİD)’in Kiev’de ortaklaşa düzenlediği etkinlikte THY ve firmanın Ukrayna faaliyetleri hakkında bir sunum gerçekleştirdi.
 
@@ -23,21 +23,21 @@ Organizasyon, konuklara Türk mutfağından lezzetlerin sunulduğu akşam yemeğ
 KAYNAK:
 **http://www.bugun.com.tr/son-dakika/thy-ukraynanin-en-buyuk-yabanci--haberi/702192**
 
-[![DSCN5264](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5264.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5264/)
+[![DSCN5264](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5264.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5264/)
 
-[![DSCN5268](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5268.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5268/)
+[![DSCN5268](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5268.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5268/)
 
-[![DSCN5230](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5230.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5230/)
+[![DSCN5230](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5230.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5230/)
 
  
 
-[![DSCN5260](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5260.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5260/)
-[![DSCN5204](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5204.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5204/)
+[![DSCN5260](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5260.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5260/)
+[![DSCN5204](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5204.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5204/)
 
-[![DSCN5205](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5205.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5205/)
+[![DSCN5205](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5205.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5205/)
 
-[![DSCN5206](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5206.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5206/)
+[![DSCN5206](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5206.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5206/)
 
-[![DSCN5208](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5208.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5208/)
+[![DSCN5208](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5208.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5208/)
 
-[![DSCN5215](http://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5215.jpg)](http://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5215/)
+[![DSCN5215](https://burakpehlivan.org/wp-content/uploads/2013/06/DSCN5215.jpg)](https://burakpehlivan.org/1522/thy-ukraynanin-en-buyuk-yabanci-havayolu-sirketi-oluyor/dscn5215/)

@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "economy", "English", "English Articles", "interview", 
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/08/Ekran-Resmi-2018-08-13-13.26.38.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/08/Ekran-Resmi-2018-08-13-13.26.38.png)
 
  
 

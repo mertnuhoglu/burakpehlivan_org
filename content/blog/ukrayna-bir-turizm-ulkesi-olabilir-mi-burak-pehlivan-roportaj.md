@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Kamaniçe", "röportaj", "TUİD (Türk Ukrayna İşada
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/05/Burak-pehlivan.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/05/Burak-pehlivan.jpg)
 
 **Uluslararası Türk Ukrayna İşadamları Derneği Başkanı ve 2017 yılı Kasım ayında düzenlediğimiz Uzakrota Travel Summit konuşmacılarından Burak Pehlivan ile Ukrayna seyahat sektörü üzerine keyifli bir sohbet gerçekleştirdik.**
 

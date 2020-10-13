@@ -6,7 +6,7 @@ tags: ["ali bulut", "Doğu Karadeniz", "Ekonomi", "Hasan Kamil Hayali", "lojisti
 type: post
 ---
 
-[![6c43d6a721ea5077d44967dfdeb9c9f062fb95407b98bfcf8c86879f2d729495](http://burakpehlivan.org/wp-content/uploads/2016/02/6c43d6a721ea5077d44967dfdeb9c9f062fb95407b98bfcf8c86879f2d729495.jpg)](http://burakpehlivan.org/wp-content/uploads/2016/02/6c43d6a721ea5077d44967dfdeb9c9f062fb95407b98bfcf8c86879f2d729495.jpg)
+[![6c43d6a721ea5077d44967dfdeb9c9f062fb95407b98bfcf8c86879f2d729495](https://burakpehlivan.org/wp-content/uploads/2016/02/6c43d6a721ea5077d44967dfdeb9c9f062fb95407b98bfcf8c86879f2d729495.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/6c43d6a721ea5077d44967dfdeb9c9f062fb95407b98bfcf8c86879f2d729495.jpg)
 
 Doğu Karadeniz’deki Ticaret ve Sanayi Odaları’nın ve Doğu Karadeniz Kalkınma Ajansının davetlisi olarak, Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) Herson temsilcisi Ali Bulut, Türkiye Ukrayna İş Konseyi kurucu genel sekreteri Yuriy Tsartskiy ile Ukrayna Sanayi ve Ticaret Odası’ndan bir işadamı heyetiyle Trabzon ve çevre illerine bir çalışma ziyareti gerçekleştirdik. Ziyaretin merkezi ise, tarihi İpekyolu’nun Karadeniz ile birleştiği, bir dönemin imparatorluk başkenti, Osmanlı’nın ise şehzade eğitim sancağı olan Trabzon oldu.
 

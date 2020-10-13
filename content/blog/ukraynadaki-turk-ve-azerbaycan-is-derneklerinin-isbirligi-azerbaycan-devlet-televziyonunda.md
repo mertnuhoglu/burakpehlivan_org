@@ -6,7 +6,7 @@ tags: ["Ali Aliyev", "Azerbaycan Ukrayna Büyükelçisi", "Burak Pehlivan", "rö
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/03/youtubebp.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/03/youtubebp.jpg)
 
 
 

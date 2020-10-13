@@ -6,7 +6,7 @@ tags: ["DEİK", "Ekonomi", "iş forumu", "organize sanayi bölgeleri", "Serbest 
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/09/Ekran-Resmi-2018-09-25-10.15.23.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/09/Ekran-Resmi-2018-09-25-10.15.23.png)
 
 Türk Ukrayna İş Forumu, bu hafta Dış Ekonomik İlişkiler Kurulu’nun(DEİK) organizasyonuyla İstanbul’da gerçekleşiyor. Böylece bu yıl ilk kez Türk Ukrayna İş Forumu düzenlenmiş olacak. Geçtiğimiz yıl ise biri Türkiye’de diğer ikisi ise Ukrayna’da toplam üç iş forumu gerçekleştirilmişti. Nisan ayında Lviv ve kasımda Dnipro’daki organizasyonları Türk Ukrayna İşadamları Derneği(TUİD) ve DEİK birlikte organize ederken, Türkiye’nin dış ekonomik ilişkileri için çok önemli bir kurum olan DEİK, sahadaki iş insanları dernekleriyle işbirliğinin güzel bir örneğini gösermişti.  Lviv’deki foruma Ukrayna Başbakan birinci yardımcısı Stepan Kubiv de katılım gösterirken, Ukrayna’da düzenlenen iki forum da kendi alanlarında ilkler kulübünde yer almışlardı zira Türkiye ve Ukrayna ekonomik ve ticari ilişkilerinin 26 yıllık tarihinde ilk kez Ukrayna’da Kiev dışındaki şehirlerde DEİK tarafından Türk Ukrayna İş Forumları gerçekleştirilmişti.
 

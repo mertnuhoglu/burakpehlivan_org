@@ -6,7 +6,7 @@ tags: ["Cem Murat Aytaç", "Director", "ebrd", "EBRD director Sevki Acuner", "Me
 type: post
 ---
 
-[![YER_9595](http://burakpehlivan.org/wp-content/uploads/2013/09/YER_9595.jpg)](http://burakpehlivan.org/1813/tuid-yeni-ebrd-ukrayna-direktoru-acuner-serefine-yemek-verdi/yer_9595/)
+[![YER_9595](https://burakpehlivan.org/wp-content/uploads/2013/09/YER_9595.jpg)](https://burakpehlivan.org/1813/tuid-yeni-ebrd-ukrayna-direktoru-acuner-serefine-yemek-verdi/yer_9595/)
 
 Turkish professioonals, working in Turkish and international companies in Ukraine, met at the dinner, given in honour of Mr. Şevki Acuner, who has been recently appointed as the Director of the European Bank of Development and Reconstruction in Ukraine.
 

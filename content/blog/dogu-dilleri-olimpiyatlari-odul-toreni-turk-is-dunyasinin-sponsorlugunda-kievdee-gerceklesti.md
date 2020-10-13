@@ -6,7 +6,7 @@ tags: ["Doğu Dilleri Olimpiyatları", "Evren Müderrisoğlu", "Fatih Öztürk",
 type: post
 ---
 
-[![DSCN7687](http://burakpehlivan.org/wp-content/uploads/2014/05/DSCN76871.jpg)](http://burakpehlivan.org/wp-content/uploads/2014/05/DSCN76871.jpg)
+[![DSCN7687](https://burakpehlivan.org/wp-content/uploads/2014/05/DSCN76871.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/05/DSCN76871.jpg)
 
 Ukrayna Milli Eğitim Bakanlığı tarafından, Kiev Milli Dil Üniversitesi’nin koordinasyonunda, Türkçe, Çince, Korece, Farsça ve Arapça dillerinde her yıl gerçekleştirilen Doğu Dilleri Olimpiyatları’nın ödül töreni, Kiev Milli Dil Üniversirtesi ana yerleşkesinde yapıldı. Törene, Türk, Çinli, Koreli diplomatlar, öğretim üyeleri, ilgili bölümlerin öğrencileri ve Türk işadamları katıldı.
 

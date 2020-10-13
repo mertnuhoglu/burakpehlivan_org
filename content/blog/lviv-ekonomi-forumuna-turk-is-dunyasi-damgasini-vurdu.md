@@ -6,7 +6,7 @@ tags: ["Batı Ukrayna", "Ekonomi", "ekonomi", "Lviv", "Rostislav Zamlinskiy", "T
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/11/IMG_6836_KH.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/11/IMG_6836_KH.jpg)
 
 
 
@@ -59,5 +59,5 @@ Bu yılın başında Ukrayna’da 30’dan fazla ülkeden katılımla OECD, EBRD
 **Burak PEHLİVAN**
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-06-at-21.39.16.png)
+![](https://burakpehlivan.org/wp-content/uploads/2017/11/Screen-Shot-2017-11-06-at-21.39.16.png)
 

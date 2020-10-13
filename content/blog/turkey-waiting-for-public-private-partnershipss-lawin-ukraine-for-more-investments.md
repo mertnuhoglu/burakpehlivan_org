@@ -6,7 +6,7 @@ tags: ["TUİD (Türk Ukrayna İşadamları Derneği)", "Ukrayna"]
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/11/IMG_9885-117.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/11/IMG_9885-117.jpg)
 
 Turkish construction companies are waiting for Ukraine's concession law before taking on big infrastructure projects, says Burak Pehlivan, president of TUID, the Turkish Ukrainian Business Association at the Eastern Europe Real Estate Forum at the Fairmont Hotel.
 
@@ -20,7 +20,7 @@ Such a law enabled $150 billion in Turkish infrastructure construction from 1990
 
 To date, he said, Turkish construction companies have carried out in Ukraine167 projects worth a total of $6 billion. Crossing the Black Sea, 600 Turkish companies have invested $2.5 billion in Ukraine.
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/11/IMG_9995-148.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/11/IMG_9995-148.jpg)
 
 Tarkan Kadooglu said many Turkish investors are waiting to see a real effort against corruption before they cross the Black Sea. (James Brooke)
 Pehlivan’s boss, Tarkan Kadooglu, flew in from Istanbul to address the gathering of real estate and construction executives.

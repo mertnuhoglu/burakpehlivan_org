@@ -6,7 +6,7 @@ tags: ["Ali Aliyev", "Batur Bayman", "Haydar Koçak", "Mehmet Seyfettin Küçük
 type: post
 ---
 
-[![IMG_5683](http://burakpehlivan.org/wp-content/uploads/2015/11/IMG_5683.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/IMG_5683.jpg)
+[![IMG_5683](https://burakpehlivan.org/wp-content/uploads/2015/11/IMG_5683.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/IMG_5683.jpg)
 Uluslararası Türk Ukrayna İşadamları Derneği(TUİD)’den bir heyet, Ukrayna Cumhurbaşkanı Poroşenko ve Meclis Başkanı Grossman’ın seçim bölgesi olan, Kiev’e yaklaşık 270 km mesafedeki Vinnitsa’ya bir çalışma ziyareti gerçekleştirdi. Heyette dernek başkanvekilleri Burak Pehlivan ve Ali Aliyev, Odesa temsilcisi Batur Bayman, İstanbul temsilcisi Mehmet Seyfettin Küçük ile genel sekreter Erhan Çimen bulunurken, heyete Türkiye Cumhuriyeti Kiev ticaret ataşesi Haydar Koçak da eşlik etti.
 
 Vinnitsa Valisi Valeriy Koroviy, TUİD yetkililerini kabulünde, konuklarına hoş geldin derken, Türk işadamlarını Vinnitsa’da görmekten duydukları memnuniyeti dile getirdi. Koroviy, şehirde yatırımlar için iki greenfield bölge oluşturduklarını ve özellikle sanayi yatırımlarını valilik olarak desteklediklerini belirtti. Kendi dönemlerinde Vinnitsa’dan Türkiye’ye ihracatın 5 kattan fazla arttığını ifade eden Vinnitsa valisi, her yıl en az bir kez ziyaret ettiği Türkiye’yi adeta ikinci bir evi olarak gördüğünü söyledi. Koroviy, şehirlerinin başta çikolata ve ayçiçek yağı olmak üzere gıda sanayi, otomotiv ve ağaç ürünleri üretimiyle tanındığını ancak Vinnitsa’nın turizmiyle de anılmasını istediklerini bu noktada, Türkiye’nin turizm sektöründeki deneyimlerinin onlar için büyük önem taşıdığını dile getirdi. Valeriy Koroviy, TUİD heyetinin ziyaretine büyük önem verdiklerini, bu tarz ziyaretlerin ileride artarak devam edeceğini umduklarını belirtti.
@@ -19,39 +19,39 @@ TUİD heyeti vilayetteki görüşmeden sonra Vinnitsa Belediyesini ve Vinnitsa S
 
 TUİD heyetinin, Vinnitsa’ya yaptığı çalışma ziyareti, TUİD yönetim kurulu üyesi ve Ukrayna Azerbaycan ve Sanayiciler Birliği başkanı Ali Aliyev ve ortakları tarafından şehir merkezinde inşaatı devam eden ve tamamlandığında 40.000 m2’ kapalı alana sahip olacak konut projesinin şantiyesinin ziyaret edilmesiyle sona erdi.
 
-[![DSCN0157](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0157.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0157.jpg)
+[![DSCN0157](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0157.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0157.jpg)
 
-![IMG_5640](http://burakpehlivan.org/wp-content/uploads/2015/11/IMG_5640.jpg)
+![IMG_5640](https://burakpehlivan.org/wp-content/uploads/2015/11/IMG_5640.jpg)
 
-[![DSCN0155](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0155.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0155.jpg)
+[![DSCN0155](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0155.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0155.jpg)
 
-[![DSCN0153](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0153.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0153.jpg)
-
- 
-
-[![DSCN0147](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0147.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0147.jpg)
-
-[![DSCN0136](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0136.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0136.jpg)
+[![DSCN0153](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0153.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0153.jpg)
 
  
 
-[![DSCN0124](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0124.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0124.jpg)
+[![DSCN0147](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0147.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0147.jpg)
 
-[![DSCN0117](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0117.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0117.jpg)
-
-[![DSCN0115](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0115.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0115.jpg)
-
-![IMG_2931](http://burakpehlivan.org/wp-content/uploads/2015/11/IMG_2931.jpg)
-
-[![DSCN0093](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0093.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0093.jpg)
-
-[![DSCN0091](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0091.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0091.jpg)
-
-[![DSCN0090](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0090.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0090.jpg)
+[![DSCN0136](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0136.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0136.jpg)
 
  
 
-[![DSCN0161](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0161.jpg)](http://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0161.jpg)
+[![DSCN0124](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0124.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0124.jpg)
+
+[![DSCN0117](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0117.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0117.jpg)
+
+[![DSCN0115](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0115.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0115.jpg)
+
+![IMG_2931](https://burakpehlivan.org/wp-content/uploads/2015/11/IMG_2931.jpg)
+
+[![DSCN0093](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0093.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0093.jpg)
+
+[![DSCN0091](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0091.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0091.jpg)
+
+[![DSCN0090](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0090.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0090.jpg)
+
+ 
+
+[![DSCN0161](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0161.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/11/DSCN0161.jpg)
 
  
 

@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Dış Ticaret", "Ekonomi", "English", "English Article
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/11/Ekran-Resmi-2018-11-18-11.22.19.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/11/Ekran-Resmi-2018-11-18-11.22.19.png)
 
 Ukrainian President Petro Poroshenko had a busy agenda during his Nov. 3 visit to Istanbul, where he presided over the 7th meeting of the high-level strategic council between the two nations.
 

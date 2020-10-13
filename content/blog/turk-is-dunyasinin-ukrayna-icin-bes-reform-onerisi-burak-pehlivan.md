@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "Ekonomi", "ICBAC", "ozellestirme", "PPP", "reform", "ta
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2018/02/Screen-Shot-2018-02-13-at-9.30.38-PM.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/02/Screen-Shot-2018-02-13-at-9.30.38-PM.png)
 
 
 Ukrayna’da, uluslararası iş dünyaları açısından 2017’nin en büyük kazanımlarından biri de, Ukrayna Sanayi ve Ticaret Odası, Almanya Ukrayna Sanayi ve Ticaret Odası, Uluslararası Türk Ukrayna İşadamları Derneği, US-Ukraine Business Council, Çin İşadamları Derneği ve Fransa Ukrayna Sanayi ve Ticaret Odaları arasında Ukrayna’da faaliyet gösteren Uluslararası İş Dernekleri ve Odaları Üst Konseyinin (ICBAC) kurulmasıydı. Böylece farklı ülkelerin iş dünyaları kendi aralarında sürekli ve kurumsal bir iletişim platformuna kavuşurken, işadamlarının ve yabancı sermayenin ortak sorunlarını ve ülkeye daha çok yabancı yatırım çekilebilmesine ilişkin görüşlerini hükümet yetkilileri ve kamuoyuyla tek ses olarak paylaşma olanağına kavuşmuş oldular.

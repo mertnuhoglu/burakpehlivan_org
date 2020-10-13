@@ -6,7 +6,7 @@ tags: ["Ekonomi", "Lviv", "organize sanayi bölgesi", "Ukrayna"]
 type: post
 ---
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/01/photo_ny-30.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/01/photo_ny-30.jpg)
 
 
 
@@ -101,7 +101,7 @@ Panelin bitiminde, konferansın düzenlendiği Lviv Arena’’nın ana salonuya
 
 
 
-![](http://burakpehlivan.org/wp-content/uploads/2017/01/photo_ny-15.jpg) ![](http://burakpehlivan.org/wp-content/uploads/2017/01/photo_ny-23.jpg)
+![](https://burakpehlivan.org/wp-content/uploads/2017/01/photo_ny-15.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/01/photo_ny-23.jpg)
 ---
 ### Comments:
 #### 

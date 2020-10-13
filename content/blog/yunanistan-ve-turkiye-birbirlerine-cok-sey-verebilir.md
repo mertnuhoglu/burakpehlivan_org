@@ -6,7 +6,7 @@ tags: ["Atina yatırım", "Aziz Şimşek", "Panagiotis Koutsikos", "SEV", "TUİD
 type: post
 ---
 
-[![](http://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-ve-turkiye-birbirlerine-cok-sey-verebilir.jpg "yunanistan-ve-turkiye-birbirlerine-cok-sey-verebilir")](http://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-ve-turkiye-birbirlerine-cok-sey-verebilir.jpg)
+[![](https://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-ve-turkiye-birbirlerine-cok-sey-verebilir.jpg "yunanistan-ve-turkiye-birbirlerine-cok-sey-verebilir")](https://burakpehlivan.org/wp-content/uploads/2012/12/yunanistan-ve-turkiye-birbirlerine-cok-sey-verebilir.jpg)
 
 Yunanistan temaslarına devam eden TUİD heyeti son ziyaretini Türk Yunan Ticaret Odası Başkanı Panagiotis Koutsikos’a gerçekleştirdi. Görüşmede TUİD’in Doğu Avrupa Türk İşadamları Dernekleri Birliği(DAİB) projesinin yanı sıra, Yunanistan’ın içinde bulunduğu son ekonomik durum konuşuldu.
 

@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Çernobil Çocukları", "Harkov", "Mehmet Samsar", "TU
 type: post
 ---
 
-[![](http://burakpehlivan.org/wp-content/uploads/2012/10/IMAG0576_BURST002_COVER.jpg "IMAG0576_BURST002_COVER")](http://burakpehlivan.org/wp-content/uploads/2012/10/IMAG0576_BURST002_COVER.jpg)
+[![](https://burakpehlivan.org/wp-content/uploads/2012/10/IMAG0576_BURST002_COVER.jpg "IMAG0576_BURST002_COVER")](https://burakpehlivan.org/wp-content/uploads/2012/10/IMAG0576_BURST002_COVER.jpg)
 
 Ukrayna Türk İş Dünyası, T.C Kiev Büyükelçisi Mehmet Samsar’ın da katılımıyla Türk Ukrayna İşadamları Derneği(TUİD) Genel Merkezi’nde bayramlaştı. Katılımın yoğun olduğu bayramlaşmada, TUİD Yönetim Kurulu Başkanvekili Burak Pehlivan, bir gün önce hem camide hem de Türk okulunda bayramlaşma yapılmış olmasına rağmen, burada bu kadar çok kişinin toplanmasının önemine dikkat çekerek katılımcılara teşekkür etti ve katılımcıların bayramını kutladı. Pehlivan, “Büyükelçimiz Sayın Mehmet Samsar’a yoğun diplomatik programına rağmen burada bizlerle olduğu için müteşekkiriz” dedi.
 
