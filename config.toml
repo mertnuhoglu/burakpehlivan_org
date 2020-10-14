@@ -18,7 +18,7 @@ defaultContentLanguage = "en-us"
 title = "Burak Pehlivan - Görüşlerim ve İzlenimlerim"
 theme = "tranquilpeak"
 disqusShortname = ""
-googleAnalytics = ""
+googleAnalytics = "UA-24342855-1"
 paginate = 30
 canonifyurls = true
 
