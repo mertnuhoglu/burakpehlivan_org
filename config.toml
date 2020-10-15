@@ -119,6 +119,18 @@ canonifyurls = true
   name = "Instagram"
   pre = "<i class=\"sidebar-button-icon fa fa-lg fa-instagram\"></i>"
   url = "https://instagram.com/pehlivan_burak"
+[[menu.links]]
+  weight = 5
+  identifier = "youtube"
+  name = "Youtube"
+  pre = "<i class=\"sidebar-button-icon fa fa-lg fa-youtube\"></i>"
+  url = "https://www.youtube.com/channel/UCgc1qqJPfVzqInpukv5R4OQ"
+[[menu.links]]
+  weight = 6
+  identifier = "podcast"
+  name = "Podcast"
+  pre = "<i class=\"sidebar-button-icon fa fa-lg fa-podcast\"></i>"
+  url = "https://www.spreaker.com/show/ukraynanin-sesi"
 
 [[menu.misc]]
   weight = 1
