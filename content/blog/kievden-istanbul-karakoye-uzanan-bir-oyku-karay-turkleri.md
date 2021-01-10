@@ -44,7 +44,7 @@ Biz de bugün bu eski ibadethanede farklı bir konser için bir araya geldik. Ha
 **Burak PEHLİVAN**
 
 
-![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.53-1024x768.jpeg) ![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.54-1-1024x768.jpeg) ![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.54-1024x768.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.53.jpeg) ![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.54-1.jpeg) ![](https://burakpehlivan.org/wp-content/uploads/2018/10/WhatsApp-Image-2018-10-05-at-10.17.54.jpeg)
 
-![](https://burakpehlivan.org/wp-content/uploads/2018/10/Ekran-Resmi-2018-10-05-10.21.56-1024x681.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/10/Ekran-Resmi-2018-10-05-10.21.56.png)
 

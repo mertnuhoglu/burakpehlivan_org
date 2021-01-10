@@ -6,7 +6,7 @@ tags: ["Genel Kurul", "TUİD", "TUİD (Türk Ukrayna İşadamları Derneği)", "
 type: post
 ---
 
-![](https://burakpehlivan.org/wp-content/uploads/2019/06/WhatsApp-Image-2019-06-01-at-17.45.46-1024x706.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2019/06/WhatsApp-Image-2019-06-01-at-17.45.46.jpeg)
 
 Uluslararası Türk Ukrayna İşadamları Derneği’nin 10. Olağan Seçimli Genel Kurulu Türkiye Cumhuriyeti Kiev Büyükelçisi Yağmur Ahmet Güldere’nin de teşrifleriyle  Kiev Intercontinental Otel’de gerçekleşti. Seçime tek liste olarak giren mevcut yönetim kurulu başkanı Burak Pehlivan’ın listesi, genel kurula katılan üyelerinin tamamını oylarını alarak, rekor oyla seçildi.
 

@@ -54,7 +54,7 @@ Ukrayna’nın doğusundaki gelişmeleri denetleyen Avrupa Güvenlik ve İşbirl
 
 Son olarak bu yılın şubat ayında Ukrayna Ulusal Yatırım Konseyi'ne de Turkcell Yönetim Kurulu Başkanı Ahmet Akça atanmıştı.
 
-![](https://burakpehlivan.org/wp-content/uploads/2018/07/WhatsApp-Image-2018-07-11-at-10.48.55-842x1024.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/07/WhatsApp-Image-2018-07-11-at-10.48.55.jpeg)
 
 Ukrayna ile ticari ilişkiler hızla gelişiyor.
 

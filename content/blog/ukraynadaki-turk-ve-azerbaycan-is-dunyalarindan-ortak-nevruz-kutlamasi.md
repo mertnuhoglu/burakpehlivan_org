@@ -6,7 +6,7 @@ tags: ["Azer Hudiyev", "Azerbaycan", "Bayram", "Nevruz", "TUİD (Türk Ukrayna �
 type: post
 ---
 
-![](https://burakpehlivan.org/wp-content/uploads/2018/03/Screen-Shot-2018-03-14-at-12.11.27-AM-1024x681.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/03/Screen-Shot-2018-03-14-at-12.11.27-AM.png)
 
 Ukrayna’daki Türk ve Azerbaycan iş dünyaları özellikle Kafkasya ve Orta Asya’daki Türk devletlerinde çok önemli bir bayram olan ve baharın gelişini müjdeleyen Nevruz’u Kiev Intercontinental Otel’de gerçekleştirilen ortak bir etkinlikle kutladılar. Azerbaycan’ın Ukrayna Büyükelçisi Azer Hudiyev’in de onurlandırdığı etkinlikte, Almanya Ukrayna Sanayi ve Ticaret Odası yönetim kurulu başkanı Andreas Lier, Çin İşadamları Derneği Başkanı Ruslan Ostupenko ile Vaşington merkezli Amerika Ukrayna İş Konseyi başkanı Morgan Williams gibi ülkedeki Türk iş dünyasının dostları, Türk ve Azerbaycanlı iş insanlarını yalnız bırakmadı.
 

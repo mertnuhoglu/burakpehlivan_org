@@ -23,7 +23,7 @@ Gelelim benim 10 yıldan fazla bir zamandır bulunduğum makine sektörüne. 187
 
 Ukrayna’daki Türk etkinliğiyle, İsveçliler’i karşılaştırabileceğimiz bir alan daha var ki, o da çağımızda ticaret gibi, sanayi gibi önem kazanan “networking”. Ülkede yalnızca 150 İsveç vatandaşı yaşıyor ve bir Türk dostu olan, aynı zamanda Friday Kyiv adlı sosyal ağ organizasyonunu kuran Anders Östlund da bunlardan biri. Anders bu işi Ukrayna’da en başarılı yapan kişidir. Türkler’in etkinliklerine katılmaya özen gösteren Anders’in en iyi birkaç arkadaşından ikisinin Türk olması ise bir tesadüf değil. Bu alanda başka önemli bir oluşum Internations’un Kiev Temsilcisi Oğuzhan Güler de hiç fena bir iş çıkarmıyor. Bu alanda da İsveç-Türk işbirliği, rekabeti devam edecek gibi gözüküyor.
 
-[![ukraynanin-rekabet-gucu-artti-620x350](https://burakpehlivan.org/wp-content/uploads/2012/06/ukraynanin-rekabet-gucu-artti-620x350.png)](https://burakpehlivan.org/wp-content/uploads/2012/06/ukraynanin-rekabet-gucu-artti-620x350.png)
+[![ukraynanin-rekabet-gucu-artti-620x350](https://burakpehlivan.org/wp-content/uploads/2012/06/ukraynanin-rekabet-gucu-artti.png)](https://burakpehlivan.org/wp-content/uploads/2012/06/ukraynanin-rekabet-gucu-artti.png)
 
 İsveç yazımın başında da belirttiğim gibi, ilgimi çok çeken bir ülke. Bu ülke ile Türkiye’yi karşılaştırırken, -özellikle ihracat rakamları temelinde- sanırım Sanayi Devrimi’ni çok geç yaşamış olan güzel ülkeme biraz haksızlık ediyorum. Ancak bugün kalemimle ukalalık ederken gördüm ki, en azından Ukrayna’da Türkler, bu dünyanın ekonomik anlamda en başarılı ülkelerinden birinin şirketlerini rekabet halinde olunan birçok sektörde yakalamış, hatta geçmiş durumdalar.
 

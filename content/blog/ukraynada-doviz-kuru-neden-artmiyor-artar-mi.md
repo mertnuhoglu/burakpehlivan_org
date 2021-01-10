@@ -24,7 +24,7 @@ Amerika’da peş peşe gerçekleştirilen faiz artırımları, güçlü dolara 
 
 IMF ile yapılan antlaşma ilerleyemezken, Ukrayna para fonundan son ödemeyi, ancak 2017’nin nisanında alabilirken, bu durum peki nasıl sağlanıyor? Hükümetin, kuru yalnızca suni yöntemler kullanarak bu seviyelerde tutması mümkün mü? Gelin bu soruların cevaplarını ve kurun nerelere gidebileceğini beraber analiz edelim.
 
-![](https://burakpehlivan.org/wp-content/uploads/2018/07/1993ee51fc918141d1d74956d501249f-640x394.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/07/1993ee51fc918141d1d74956d501249f.jpeg)
 
 Öncelikle şunu hatırlatmakta yarar var Ukrayna para birimi daha önceki yıllarda diğer para birimlerine göre yüksek derece negatif ayrışma yaşamıştı, dolayısıyla karşımızda düşük bir baz var. Ayrıca, Ukrayna’da sermaye piyasaları gelişmediği ve dünya ile yeterince entegre olmadığı için, bu durum global piyasalardaki değişimlerde, Ukrayna grivnasının tepkisiz kalmasını kolaylaştırıyor.
 

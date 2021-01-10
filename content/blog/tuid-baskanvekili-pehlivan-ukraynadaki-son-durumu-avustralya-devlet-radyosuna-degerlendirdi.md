@@ -6,7 +6,7 @@ tags: ["Avustralya Devlet Radyosu", "Burak Pehlivan", "Gruşevskava Caddesi", "T
 type: post
 ---
 
-[![Euromaidan_Kyiv_1-12-13_by_Gnatoush_005](https://burakpehlivan.org/wp-content/uploads/2014/01/Euromaidan_Kyiv_1-12-13_by_Gnatoush_005-1024x682.png)](https://burakpehlivan.org/wp-content/uploads/2014/01/Euromaidan_Kyiv_1-12-13_by_Gnatoush_005.png)
+[![Euromaidan_Kyiv_1-12-13_by_Gnatoush_005](https://burakpehlivan.org/wp-content/uploads/2014/01/Euromaidan_Kyiv_1-12-13_by_Gnatoush_005.png)](https://burakpehlivan.org/wp-content/uploads/2014/01/Euromaidan_Kyiv_1-12-13_by_Gnatoush_005.png)
 Türk Ukrayna İşadamları Derneği Başkanvekili Burak Pehlivan, Ukrayna’daki son ekonomik ve siyasi durumu Avustralya Devlet Radyosu’nun Türkçe servisine bir röportaj vererek analiz etti. 74 dilde yayın yapan Avustralya Devlet Radyosu’nda yaklaşık 10 dakika süren progamda, Pehlivan Kiev’de Gruşevskava caddesi etrafında son  birkaç günde şiddeti artan olayları değerlendirirken, ülkenin Avrupa Birliği ve Rusya arasında seçim yapma ikilemine de ayrıntılı bir biçimde değindi.
 
 

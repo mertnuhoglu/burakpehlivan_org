@@ -6,7 +6,7 @@ tags: ["dijital", "Dış Ticaret", "e-ticaret", "Ekonomi", "makale", "TUİD (Tü
 type: post
 ---
 
-![](https://burakpehlivan.org/wp-content/uploads/2020/02/WhatsApp-Image-2020-02-19-at-10.34.24-854x1024.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2020/02/WhatsApp-Image-2020-02-19-at-10.34.24.jpeg)
 
 **Türkiye ve Ukrayna arasında e-ticaret yolu neden inşa edilmesin?** 
 

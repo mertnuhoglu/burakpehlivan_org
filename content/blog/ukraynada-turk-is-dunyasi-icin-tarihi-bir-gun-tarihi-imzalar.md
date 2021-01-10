@@ -6,7 +6,7 @@ tags: ["Almanya Ukrayna Ticaret ve Sanayi Odası", "Bertnard Barrier", "Dernek",
 type: post
 ---
 
-![](https://burakpehlivan.org/wp-content/uploads/2018/06/Ekran-Resmi-2018-06-11-20.13.01-1024x672.png)
+![](https://burakpehlivan.org/wp-content/uploads/2018/06/Ekran-Resmi-2018-06-11-20.13.01.png)
 
 
 

@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "ekonomi", "röportaj", "TUİD (Türk Ukrayna İşadaml
 type: post
 ---
 
-[![11](https://burakpehlivan.org/wp-content/uploads/2016/07/11-1024x574.png)](https://burakpehlivan.org/wp-content/uploads/2016/07/11.png)
+[![11](https://burakpehlivan.org/wp-content/uploads/2016/07/11.png)](https://burakpehlivan.org/wp-content/uploads/2016/07/11.png)
 
 Ukrayna’yı ve Ukrayna Türkiye ilişkilerini Burak Pehlivan BRTV’ye bir röportajla değerlendirdi
 

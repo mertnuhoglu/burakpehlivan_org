@@ -6,7 +6,7 @@ tags: ["Gezi", "Gezi ve Restoran", "Kukeldaş Medresesi", "Kültür ve Din", "Or
 type: post
 ---
 
-![](https://burakpehlivan.org/wp-content/uploads/2018/09/WhatsApp-Image-2018-09-30-at-21.25.58-1024x768.jpeg)
+![](https://burakpehlivan.org/wp-content/uploads/2018/09/WhatsApp-Image-2018-09-30-at-21.25.58.jpeg)
 
 
 

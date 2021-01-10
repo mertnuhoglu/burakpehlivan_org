@@ -21,9 +21,9 @@ Dinner lasted until late evening in Kyiv Mangal Restaurant.
 
 \[caption id="attachment\_3465" align="alignnone" width="500"\][![IMG_2580](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2580.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2580.jpg) TUID President Cem Murat Aytaç together with Turkish Ambassador to Ukraine HE Yönet Can Tezel, Commercial Attache Belkıs Gürsel Güleç and Tourism and Culture Attache Berat Yıldız\[/caption\]
 
-\[caption id="attachment\_3462" align="alignnone" width="500"\]![2015-07-08 09-21-43 Screenshot](https://burakpehlivan.org/wp-content/uploads/2015/07/2015-07-08-09-21-43-Screenshot-1024x575.png) TUID President Cem Murat Aytaç makes his welcome speech\[/caption\]
+\[caption id="attachment\_3462" align="alignnone" width="500"\]![2015-07-08 09-21-43 Screenshot](https://burakpehlivan.org/wp-content/uploads/2015/07/2015-07-08-09-21-43-Screenshot.png) TUID President Cem Murat Aytaç makes his welcome speech\[/caption\]
 
-\[caption id="attachment\_3466" align="alignnone" width="500"\]![2015-07-08 09-16-10 Screenshot](https://burakpehlivan.org/wp-content/uploads/2015/07/2015-07-08-09-16-10-Screenshot-1024x575.png) TUID Vice President Burak Pehlivan greets the guests\[/caption\]
+\[caption id="attachment\_3466" align="alignnone" width="500"\]![2015-07-08 09-16-10 Screenshot](https://burakpehlivan.org/wp-content/uploads/2015/07/2015-07-08-09-16-10-Screenshot.png) TUID Vice President Burak Pehlivan greets the guests\[/caption\]
 
 \[caption id="attachment\_3464" align="alignnone" width="500"\][![IMG_2551](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2551.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/07/IMG_2551.jpg) Business Ukraine's chief editor Peter Dickinson with Colin's management team\[/caption\]
 
