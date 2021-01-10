@@ -34,7 +34,7 @@ type: post
 
 
 
-**![haber](http://www.tuid.org.ua/images/haber/bjk12.jpg)**
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/bjk12.jpg)**
 
 Yaklaşık bir aydır yazılarıma ara vermiştim. Hem yaz sonrası işlerin yoğunluğu, hem yaptığım kısa bir tatil hem de Ukrayna Beşiktaşlılar Derneği’nin kuruluş çalışmaları, yazıya ayırmak istediğim zamanı kaplamıştı. Nitekim kısa bir zaman içerisinde Beşiktaş Derneği ve derneğin kuruluş çalışmalarına ilişkin bir yazı da kaleme alacağım. Geçtiğimiz hafta, Kiev’de Tike Restoran’da Ukrayna Beşiktaşlılar Derneği olarak yaklaşan Dinamo Kiev maçı öncesi Dinamo Kiev Yardımcı Hocası Rebrov ve Dinamo Kiev’in önde gelen taraftarlarını misafir ettik.  Yemeğin birincil amacı 20 Ekim’de oynanacak maç arifesinde Beşiktaş ve Dinamo Kiev taraftar dernekleri arasında planlanan yemeğin ayrıntılarını planlamaktı, ama bu amacın yanı sıra konuklara Türk kültürüne ait bazı tatları da tattırmak istedik.  Yemekte, Ukrayna Plaj Voleybolu Federasyonu Başkanı ve ülkenin en presjtili restoran zinciri Naşa Karta’nın sahibi Nikolay Tişenko ve Ukrayna Televziyon Dünyası’nın en sevilen şefi Sergey Gorlaçev hazır bulunması bu anlamda önemli bir sınavdı.
 

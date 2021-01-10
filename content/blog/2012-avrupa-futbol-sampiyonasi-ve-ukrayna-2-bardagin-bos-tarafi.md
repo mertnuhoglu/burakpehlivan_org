@@ -6,7 +6,7 @@ tags: ["Donetsk", "Ekonomi", "ekonomi", "euro2012", "Harkov", "Kiev", "Lvov", "P
 type: post
 ---
 
-![euro-2012-avrupa-sampiyonasi-bardagin-bos-tarafi-burak-pehlivan](http://www.tuid.org.ua/images/stories/euro-2012-avrupa-sampiyonasi-bardagin-bos-tarafi-burak-pehlivan.png)
+![euro-2012-avrupa-sampiyonasi-bardagin-bos-tarafi-burak-pehlivan](http://www.arsiv.tuid.org.ua/images/stories/euro-2012-avrupa-sampiyonasi-bardagin-bos-tarafi-burak-pehlivan.png)
 
 Birkaç gün önce kaleme aldığım yazıda, 2012 Avrupa Futbol Şampiyonası’nın, Ukrayna’ya getireceği olası olumlu etkileri ele almıştım Bu yazımda ise şampiyonanın maliyetinden yola çıkarak, organizasyonu düzenlemiş olmanın Ukrayna’ya getirebileceği kısa ve orta vadeli olumsuzluklara değineceğim. Konuyu analiz ederken son dönemde düzenlenen benzer organizasyonların, ev sahibi ülkelere etkilerinden de yararlanacağım. Yazının sonunda ise artı ve eksileri beraber karşılaştırarak bir sonuç yargısına varacağım.
 

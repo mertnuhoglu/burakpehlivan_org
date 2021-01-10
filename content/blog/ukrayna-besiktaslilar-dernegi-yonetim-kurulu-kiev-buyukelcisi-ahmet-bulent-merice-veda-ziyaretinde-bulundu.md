@@ -11,7 +11,7 @@ type: post
 
 
 
-![haber](http://tuid.org.ua/images/haber/bjkdernek.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/bjkdernek.jpg)
 
  
 

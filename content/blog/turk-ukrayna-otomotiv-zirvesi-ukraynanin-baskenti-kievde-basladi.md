@@ -6,7 +6,7 @@ tags: ["otomotiv üreticileri", "TUİD", "TUİD (Türk Ukrayna İşadamları Der
 type: post
 ---
 
-**![haber](http://tuid.org.ua/images/haber/kievoto.jpg)**
+**![haber](http://arsiv.tuid.org.ua/images/haber/kievoto.jpg)**
 
 Ukrayna Sanayi ve Ticaret Odası’nda, Türk ve Ukraynalı otomotiv yan sanayi firmalarıyla, Ukraynalı otomotiv ana sanayi firmalarının katılımıyla gerçekleşen zirveye iki ülkeden 50’den fazla üretici iştirak etti. Organizasyonun açılış konuşmaları Ukrayna Sanayi ve Ticaret Odası Birinci Başkan Yardımcısı Viktor P. Yanovsky ile Türk Ukrayna İşadamları Derneği(TUİD) Başkan Vekili Burak Pehlivan tarafından yapıldı.
 
@@ -20,17 +20,17 @@ Toplantı sonrası Türk ve Ukraynalı firmalar arasında ikili iş görüşmele
 
 Kaynak : tuid.org.ua
 
-**![haber](http://tuid.org.ua/images/haber/kievoto1.jpg)** 
+**![haber](http://arsiv.tuid.org.ua/images/haber/kievoto1.jpg)** 
 
-**![haber](http://tuid.org.ua/images/haber/kievoto2.jpg)** 
+**![haber](http://arsiv.tuid.org.ua/images/haber/kievoto2.jpg)** 
 
-**![haber](http://tuid.org.ua/images/haber/kievoto3.jpg)** 
+**![haber](http://arsiv.tuid.org.ua/images/haber/kievoto3.jpg)** 
 
-**![haber](http://tuid.org.ua/images/haber/kievoto4.jpg)** 
+**![haber](http://arsiv.tuid.org.ua/images/haber/kievoto4.jpg)** 
 
-**![haber](http://tuid.org.ua/images/haber/kievoto5.jpg)** 
+**![haber](http://arsiv.tuid.org.ua/images/haber/kievoto5.jpg)** 
 
-**![haber](http://tuid.org.ua/images/haber/kievoto6.jpg)** 
+**![haber](http://arsiv.tuid.org.ua/images/haber/kievoto6.jpg)** 
 
-**![haber](http://tuid.org.ua/images/haber/kievoto7.jpg)** 
+**![haber](http://arsiv.tuid.org.ua/images/haber/kievoto7.jpg)** 
 

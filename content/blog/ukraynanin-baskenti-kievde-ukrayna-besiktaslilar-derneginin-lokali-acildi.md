@@ -6,7 +6,7 @@ tags: ["Beşiktaş", "Kiev", "Spor", "Ukrayna Beşiktaşlılar Derneği", "Ukray
 type: post
 ---
 
-![haber](http://tuid.org.ua/images/haber/besik.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/besik.jpg)
 
 
 

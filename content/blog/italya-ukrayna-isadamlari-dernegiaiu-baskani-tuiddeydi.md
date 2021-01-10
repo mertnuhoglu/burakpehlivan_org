@@ -6,7 +6,7 @@ tags: ["Dernek", "İtalya", "Ticaret", "TUİD", "TUİD (Türk Ukrayna İşadamla
 type: post
 ---
 
-**![haber](http://www.tuid.org.ua/images/haber/italyan.jpg)**
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/italyan.jpg)**
 
 İtalya Ukrayna işadamlari Derneği(AIU) Yönetim Kurulu Başkanı Giuseppe Laghezza Masci ve beraberindeki İtalyan işadamları Türk Ukrayna İşadamları Derneği TUİD’e ziyarette bulundular.
 
@@ -24,25 +24,25 @@ Toplantı sonucunda her ülke işadamları arasında ikili görüşmeler gerçek
 
 TUİD ve AİU adına geniş kapsamlı işbirliği protokollerini AIU Yönetim Kurulu Başkanı Giuseppe Laghezza Masci ile TUİD Yönetim Kurulu Başkan Vekili Burak Pehlivan imzaladılar.
 
-![](http://www.tuid.org.ua/images/haber/DSCN9890.JPG)
+![](http://www.arsiv.tuid.org.ua/images/haber/DSCN9890.JPG)
 
-![](http://www.tuid.org.ua/images/haber/DSCN9859.JPG)
+![](http://www.arsiv.tuid.org.ua/images/haber/DSCN9859.JPG)
 
-![](http://www.tuid.org.ua/images/haber/DSCN9882.JPG)
+![](http://www.arsiv.tuid.org.ua/images/haber/DSCN9882.JPG)
 
-![](http://www.tuid.org.ua/images/haber/DSCN9814.JPG)
+![](http://www.arsiv.tuid.org.ua/images/haber/DSCN9814.JPG)
 
-![](http://www.tuid.org.ua/images/haber/DSCN9877.JPG)
+![](http://www.arsiv.tuid.org.ua/images/haber/DSCN9877.JPG)
 
-![](http://www.tuid.org.ua/images/haber/DSCN9879.JPG)
-
- 
+![](http://www.arsiv.tuid.org.ua/images/haber/DSCN9879.JPG)
 
  
 
-![](http://www.tuid.org.ua/images/haber/DSCN9822.JPG)
+ 
 
-![](http://www.tuid.org.ua/images/haber/DSCN9911.JPG)
+![](http://www.arsiv.tuid.org.ua/images/haber/DSCN9822.JPG)
+
+![](http://www.arsiv.tuid.org.ua/images/haber/DSCN9911.JPG)
 
  
 

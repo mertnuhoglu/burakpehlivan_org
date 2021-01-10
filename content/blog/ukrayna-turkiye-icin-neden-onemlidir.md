@@ -6,7 +6,7 @@ tags: ["BDT", "Büyük Britanya Ukrayna Büyükelçisi", "Ekonomi", "Enerji Kori
 type: post
 ---
 
-![](http://tuid.org.ua/images/haber/uatr1.jpg "ukraynaturkiye")Büyük Britanya’nın, Ukrayna Büyükelçisi dinamik ve entelektüel bir kişilik. Sosyal ve siyasal konular kadar ekonomik konulara da duyarlı. Bu manada Büyük Britanya’nın, Kiev’deki temsilciliğinin, ülkedeki en etkin büyükelçiliklerden biri olduğunu söyleyebiliriz.
+![](http://arsiv.tuid.org.ua/images/haber/uatr1.jpg "ukraynaturkiye")Büyük Britanya’nın, Ukrayna Büyükelçisi dinamik ve entelektüel bir kişilik. Sosyal ve siyasal konular kadar ekonomik konulara da duyarlı. Bu manada Büyük Britanya’nın, Kiev’deki temsilciliğinin, ülkedeki en etkin büyükelçiliklerden biri olduğunu söyleyebiliriz.
 
 Büyükelçilik geçtiğimiz aylarda “Ukrayna’nın, Büyük Britanya Açısından Önemli Olmasının 6 Nedeni” adlı bir broşür çıkartmıştı. O dönem bu broşürle ilgili bir yazı kaleme almayı çok istemiştim ama araya başka konular, öncelikler girdi. O broşürden hareketle Britanyalıların ortaya koydukları argümanlara karşı bizim hangi argümanları ön plana çıkarabileceğimizi düşünmüştüm, yani biz olsak ne yazardık? Gelin hep birlikte, bizim için Ukrayna’nın neden önemli olabileceğini ele almadan Britanyalıların nedenlerine göz atalım.
 

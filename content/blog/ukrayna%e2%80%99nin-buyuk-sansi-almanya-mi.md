@@ -17,7 +17,7 @@ type: post
 
 
 
-**![haber](http://tuid.org.ua/images/haber/uager.jpg)**
+**![haber](http://arsiv.tuid.org.ua/images/haber/uager.jpg)**
 
  
 

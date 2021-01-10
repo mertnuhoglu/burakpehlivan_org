@@ -6,7 +6,7 @@ tags: ["Beşiktaş", "Büyükelçilik", "Dernek", "Diplomasi", "Mehmet Samsar", 
 type: post
 ---
 
-![haber](http://tuid.org.ua/images/haber/bjksamsar.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/bjksamsar.jpg)
 
 
 

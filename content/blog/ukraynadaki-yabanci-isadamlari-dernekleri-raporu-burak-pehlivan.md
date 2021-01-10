@@ -148,7 +148,7 @@ US-Ukraine Business Council(USUBC)
 
 1995 yılında, Amerikan firmalarının Ukrayna’daki yatırım ortamına ve fırsatlarına dikkatlerini çekmek, iki ülkenin ticari ve ekonomik ilişkilerini desteklemek için kurulmuş olan konsey, özellikle son bir yıldır etkinliklerini ve lobi faaliyetlerini artırmış durumda. USUBC,Ukrayna’nın ve Doğu Avrupa’nın en saygın İngilizce gazetelerinden biri olan Kyiv Post’ta, bir önceki ABD büyükelçisi John Teft için arka arkaya tam sayfa veda, Ukrayna cumhurbaşkanı Poroşenko için ise hoşgeldin ilanları vererek  dikkatleri üzerine çekmişti. Vaşington merkezli kuruluş, ACC’den farklı olarak Ukrayna’da değil, özellikle Amerika’da etkin. Başkanlığını aynı zamanda yatırım fonu SigmaBleyzer’ın da yöneticilerinden olan Morgan Williams yürütüyor. Sayıları 200’ü aşan üyeleri arasında, büyük Amerikan şirketlerinin yanı sıra, farklı ülkelerdeki Amerikan işadamları dernekleriyle dost ülkelerin işadamı dernekleri ve işadamı konseyleri de bulunuyor.
 
-![](http://tuid.org.ua/images/haber/kievoto7.jpg)
+![](http://arsiv.tuid.org.ua/images/haber/kievoto7.jpg)
 
 
 British Ukrainian Chamber of Commerce(BUCC)

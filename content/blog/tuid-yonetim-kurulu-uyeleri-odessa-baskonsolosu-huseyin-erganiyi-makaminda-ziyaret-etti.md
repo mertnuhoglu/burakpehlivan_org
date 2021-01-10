@@ -6,7 +6,7 @@ tags: ["Ali Kunt", "Aziz Şimşek", "Cem Murat Aytaç", "Hüseyin Ergani", "Odes
 type: post
 ---
 
-**![haber](http://www.tuid.org.ua/images/haber/odessa1.jpg)**
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/odessa1.jpg)**
 
  
 

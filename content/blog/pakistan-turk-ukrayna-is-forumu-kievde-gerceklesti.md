@@ -6,7 +6,7 @@ tags: ["Kiev Post", "Mehmet Samsar", "Pakistan", "TUİD (Türk Ukrayna İşadaml
 type: post
 ---
 
-**![haber](http://www.tuid.org.ua/images/haber/pakistanforum.jpg)**
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/pakistanforum.jpg)**
 
 Kiev, 7 Aralık’da tarihi günlerinden birine tanıklık etti. Ukrayna ülke tarihinde belki de ilk kez, Ukrayna’ya gelen yabancı bir ülke işadamı heyeti, ülke işadamlarıyla görüşmeden üçüncü bir ülkenin işadamlarıyla iş forumu gerçekleştirdi. Her ne kadar Türkiye ve Pakistan arasında kökleri çok derinlere dayanan tarihi bir dostluk bulunsa da iki ülkenin Ukrayna’daki iş dünyası ve diplomatik temsilcilerinin arasındaki yakınlık bu ilkin ortaya çıkmasında büyük pay sahibi oldu.
 
@@ -38,13 +38,13 @@ Yemeğe katılan Beko’nun Ukrayna distibütörü işadamı Naci Kanar: “Böy
 
 Pakistan heyetinin Ukrayna gezisi 10 Aralık’ta sona erecek. İlk kez Pakistan’dan bir işadamı heyeti Ukrayna’ya resmi ziyarette bulunuyor.
 
-**![haber](http://www.tuid.org.ua/images/haber/pakistanforum22.jpg)** 
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/pakistanforum22.jpg)** 
 
-**![haber](http://www.tuid.org.ua/images/haber/pakistanforum23.jpg)** 
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/pakistanforum23.jpg)** 
 
-**![haber](http://www.tuid.org.ua/images/haber/pakistanforum24.jpg)** 
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/pakistanforum24.jpg)** 
 
  
 
-**![haber](http://www.tuid.org.ua/images/haber/pakistanforum26.jpg)** 
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/pakistanforum26.jpg)** 
 

@@ -8,7 +8,7 @@ type: post
 
 
 
-![haber](http://tuid.org.ua/images/haber/olga.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/olga.jpg)
 
 Bu yıl 8.’si düzenlenen YES(Yalta European Strategy) forumunun açılışı Ukrayna Cumhurbaşkanı Yanukoviç ve İsrail Devlet Başkanı Şimon Perez tarafından yapılmıştı. Foruma, eski İngiltere başbakanı Tony Blair’den, İsveç Dışişleri Bakanı Carld Bildt’e   geniş bir uluslar arası katılım sağlanmış,  Ukrayna ise Başbakan Azarov ve Başbakan yardımcısı Kolesnikov’un da dahil olduğu çok sayıda siyasetçi , diplomat ve gazeteci tarafından temsil edilmişti. Türkiye'den ise YES’e başta başmüzakereci Egemen Bağış ve AKPM Başkanı Mevlut Çavuşoğlu olmak üzere, çok sayıda siyasetçi, diplomat ve işadamı ilgi göstermişti.
 
@@ -32,7 +32,7 @@ Olga Çubrikova’nın sunumu sonrasında gerçekleşen soru-cevap bölümünde
 
 Eğitimi,  bilgisi, deneyimi ve Türk Ukrayna İlişkileri’ne dair geniş hakimiyeti ile Türk işadamlarının beğenisini kazanan OlgaÇubrikova’ya toplantının sonunda Türk Ukrayna İlişkileri’ne yaptığı üstün katkılardan dolayı teşekkür plaketi TUİD Başkan Vekili Burak Pehlivan tarafından takdim edildi.
 
-![](http://tuid.org.ua/images/haber/DSCN0122.JPG)
+![](http://arsiv.tuid.org.ua/images/haber/DSCN0122.JPG)
 
 \* \*Kiev Milli Taras Şevçenko Üniversitesi Doğu Bilimleri Bölümü ve Gazetecilik Enstitüsü’nden mezun olan ve Türkoloji üzerine doktora yapan Çubrikova, Ukrayna’nın Ankara Büyükelçiliği’nde yedi yıl görev yaptı. Çubrikova hali hazırda Ukrayna Dışişleri Bakan Danışmanı görevini sürdürmektedir.
 

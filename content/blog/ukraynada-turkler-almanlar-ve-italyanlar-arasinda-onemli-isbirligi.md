@@ -17,7 +17,7 @@ type: post
 
 
 
-![haber](http://tuid.org.ua/images/haber/tdu1.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu1.jpg)
 
 
 **Ukrayna’da Türkler, Almanlar ve İtalyanlar Arasında Önemli İşbirliği**
@@ -44,27 +44,27 @@ Açılışta son olarak söz alan TUİD Yönetim Kurlulu Başkanvekili Burak Peh
 E-On Ruhrgaz, Arzinger, Uni Credit, Basf, Würth, Puma, AXA, Viko, Terex, PWC, Credit Agricole, Raifeissen Aval Bank, Adopen, Adidas gibi firmaların üst düzey yöneticilerinin katıldığı geceye Ukrayna basını da geniş ilgi gösterdi.
 
 
-![haber](http://tuid.org.ua/images/haber/tdu1.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu1.jpg)
 
-![haber](http://tuid.org.ua/images/haber/tdu2.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu2.jpg)
 
-![haber](http://tuid.org.ua/images/haber/tdu3.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu3.jpg)
 
-![haber](http://tuid.org.ua/images/haber/tdu4.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu4.jpg)
 
-![haber](http://tuid.org.ua/images/haber/tdu5.jpg)
-
- 
-
- 
-
-![haber](http://tuid.org.ua/images/haber/tdu9.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu5.jpg)
 
  
 
  
 
-![haber](http://tuid.org.ua/images/haber/tdu12.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu9.jpg)
+
+ 
+
+ 
+
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu12.jpg)
 
  
 
@@ -72,15 +72,15 @@ E-On Ruhrgaz, Arzinger, Uni Credit, Basf, Würth, Puma, AXA, Viko, Terex, PWC, C
 
  
 
-![haber](http://tuid.org.ua/images/haber/tdu16.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu16.jpg)
 
  
 
  
 
-![haber](http://tuid.org.ua/images/haber/tdu19.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu19.jpg)
 
-![haber](http://tuid.org.ua/images/haber/tdu21.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu21.jpg)
 
-![haber](http://tuid.org.ua/images/haber/tdu26.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/tdu26.jpg)
 

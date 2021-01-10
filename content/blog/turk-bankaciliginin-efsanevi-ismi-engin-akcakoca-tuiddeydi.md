@@ -6,7 +6,7 @@ tags: ["Engin Akçakoca", "IMF Ukrayna İlişkileri", "Privatbank", "TUİD", "TU
 type: post
 ---
 
-![haber](http://tuid.org.ua/images/haber/engina1.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/engina1.jpg)
 
 
 
@@ -29,17 +29,17 @@ www.tuid.org.ua
 
  
 
-![haber](http://tuid.org.ua/images/haber/engin1.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/engin1.jpg)
 
-![haber](http://tuid.org.ua/images/haber/engin3.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/engin3.jpg)
 
-![haber](http://tuid.org.ua/images/haber/engin7.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/engin7.jpg)
 
-![haber](http://tuid.org.ua/images/haber/engin8.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/engin8.jpg)
 
-![haber](http://tuid.org.ua/images/haber/engin10.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/engin10.jpg)
 
-![haber](http://tuid.org.ua/images/haber/engin11.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/engin11.jpg)
 
  
 

@@ -27,7 +27,7 @@ type: post
 
 
 
-![haber](http://www.tuid.org.ua/images/haber/imfua.jpg) 
+![haber](http://www.arsiv.tuid.org.ua/images/haber/imfua.jpg) 
 
  
 

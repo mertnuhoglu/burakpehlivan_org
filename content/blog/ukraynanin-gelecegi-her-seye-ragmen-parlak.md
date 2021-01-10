@@ -19,7 +19,7 @@ type: post
 
  **“Ukrayna’nın Geleceği Her Şeye Rağmen Parlak”**
 
-![haber](http://tuid.org.ua/images/haber/dagtekin.jpg)Ukrayna’daki en büyük Türk bankası Credit Europe’un genel müdürü Yusuf Dağtekin, Türk Ukrayna İşadamları Derneği’nin(TUİD) ekonomik bilgilendirme toplantıları çerçevesinde TUİD Üyeleri ve Ukrayna’daki Türk iş dünyasının temsilcileriyle buluştu. TUİD Genel Merkezi’ndeki etkinliğe elliden fazla Türk ve Ukraynalı işadamı ilgi gösterdi.
+![haber](http://arsiv.tuid.org.ua/images/haber/dagtekin.jpg)Ukrayna’daki en büyük Türk bankası Credit Europe’un genel müdürü Yusuf Dağtekin, Türk Ukrayna İşadamları Derneği’nin(TUİD) ekonomik bilgilendirme toplantıları çerçevesinde TUİD Üyeleri ve Ukrayna’daki Türk iş dünyasının temsilcileriyle buluştu. TUİD Genel Merkezi’ndeki etkinliğe elliden fazla Türk ve Ukraynalı işadamı ilgi gösterdi.
 
 Etkinliğin açılış konuşmasını yapan Türk Ukrayna İşadamları Derneği Yönetim Kurulu Başkanı ve Eczacıbaşı Holding Ukrayna temsilcisi Cem Murat Aytaç, dernek olarak görevlerinin ekonomik manada üyelerini ve Ukrayna’da iş yapan :Türk işadamlarını doğru bilgilendirmek olduğunu belirterek, bu toplantıların önümüzdeki dönemde de süreceğini ifade etti. Cem Murat Aytaç, hep söylediği gibi bu ülkenin geleceğine inandıklarını ifade ederek sözlerini tamamladı.
 
@@ -33,19 +33,19 @@ Sunumun sonunda görüşlerini açıklayan bankanın hazine bölümü müdürü 
 
 Etkinliğin kapanış konuşmasının yapan TUİD Başkanı Cem Murat Aytaç, Ukrayna ile Türkiye’nin dost ve komşu iki olarak iyi ekonomik ilişkilerde bulunmasının, ülkedeki Türk yatırımcılarının sayısının artmasının, Türkiye ve Ukrayna’nın refahına önemli katkı yapacağını belirterek, “işte bu bilgilendirme toplantıları ülkeye yatırım yapmış ve yapmayı düşünen Türk girişimciler için önemlidir, dernek olarak bu etkinlikleri ilerki dönemde de gereçekleştireceğiz” diyerek sözlerini tamamladı.
 
-![haber](http://tuid.org.ua/images/haber/dagtekin1.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/dagtekin1.jpg)
 
-![haber](http://tuid.org.ua/images/haber/dagtekin2.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/dagtekin2.jpg)
 
-![haber](http://tuid.org.ua/images/haber/dagtekin2a.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/dagtekin2a.jpg)
 
-![haber](http://tuid.org.ua/images/haber/dagtekin3.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/dagtekin3.jpg)
 
-![haber](http://tuid.org.ua/images/haber/dagtekin4.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/dagtekin4.jpg)
 
-![haber](http://tuid.org.ua/images/haber/dagtekin5.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/dagtekin5.jpg)
 
-![haber](http://tuid.org.ua/images/haber/dagtekin6.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/dagtekin6.jpg)
 
  
 

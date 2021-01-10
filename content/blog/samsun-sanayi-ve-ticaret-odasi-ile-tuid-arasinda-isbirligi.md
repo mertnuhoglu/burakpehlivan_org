@@ -6,7 +6,7 @@ tags: ["Sanayi ve Ticaret Odası", "TUİD", "TUİD (Türk Ukrayna İşadamları 
 type: post
 ---
 
- **![haber](http://www.tuid.org.ua/images/haber/samsun1.jpg)**
+ **![haber](http://www.arsiv.tuid.org.ua/images/haber/samsun1.jpg)**
 
 Samsun Sanayi ve Ticaret Odası Heyeti TUİD’i ziyaret ettti. Yaklaşık 60 kişilik işadamı ve bürokrattan oluşan heyet, Ukrayna Sanayi ve Ticaret Odası’nın yanı sıra, TUİD’e de ziyarette bulundu. 3 günlük ticari gezi için Kiev’e gelen heyetin yanı sıra Samsun Sanayi ve Ticaret Odası’nın da başkanı olan Zeki Murzioğlu, TUİD’de yaptığı konuşmada birçok ülkeye ziyarette bulunduklarını ve buralardaki işadamları dernekleriyle görüştüklerini ancak Türk Ukrayna İşadamları Derneği’nin organizasyon yeteneğinin ve teknik imkanlarının kendilerini etkilediğini ifade etti. Başkan Murzioğlu 1901 yılında kurulan odanın bugün 7.000’den fazla üyesi olduğunu belirterek, bundan böyle odamız ve TUİD arasındaki işbirliği artarak sürecektir dedi.
 
@@ -17,20 +17,20 @@ Görüşme esnasında TUİD yönetim kurulu başkanvekili Burak Pehlivan, Samsun
 Görüşme sonunda iki kurum arasındaki işbirliği protokolü TUİD Yönetim Kurulu Başkan Vekili Burak Pehlivan ile Samsun Sanayi ve Ticaret Odası Başkanı Zeki Murzioğlu arasında imzalandı.
 
 
-![haber](http://www.tuid.org.ua/images/haber/samsun2.jpg)
+![haber](http://www.arsiv.tuid.org.ua/images/haber/samsun2.jpg)
 
 
  
 
-![haber](http://www.tuid.org.ua/images/haber/samsun4.jpg)
+![haber](http://www.arsiv.tuid.org.ua/images/haber/samsun4.jpg)
 
-![haber](http://www.tuid.org.ua/images/haber/samsun5.jpg)
-
- 
-
-![haber](http://www.tuid.org.ua/images/haber/samsun7.jpg)
+![haber](http://www.arsiv.tuid.org.ua/images/haber/samsun5.jpg)
 
  
 
-![haber](http://www.tuid.org.ua/images/haber/samsun10.jpg)
+![haber](http://www.arsiv.tuid.org.ua/images/haber/samsun7.jpg)
+
+ 
+
+![haber](http://www.arsiv.tuid.org.ua/images/haber/samsun10.jpg)
 

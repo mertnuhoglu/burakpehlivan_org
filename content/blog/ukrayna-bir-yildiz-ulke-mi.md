@@ -17,7 +17,7 @@ type: post
 
 
 
-**![haber](http://www.tuid.org.ua/images/haber/royce.jpg)****Ukrayna Bir Yıldız Ülke mi? **Ukrayna’da yüksek hacimli iş yapan bir Türk firmasının üst düzey yöneticisi olan arkadaşımla geçtiğimiz günlerde sohbet ederken paylaştığı bir anekdotun giriş cümlesiydi bu yazının başlığı “Ukrayna Bir Yıldız Ülke mi?” Çalıştığı firmanın İstanbul’daki merkeziyle, Kiev’deki ofisleri doğal olarak belirli aralıklarla Ukrayna’nın makroekonomik rakamlarını paylaşıyordu. Bir gün İstanbul’dan aranmışlar, ne kadar iyi ekonomik göstergelere sahip bir ülkede iş yapıyoruz, bunun farkında mısını diye? Arkadaşım bir, her gün yaşadığı gerçeklere, bir de rakamlara bakmış, ortada bir paradoks olduğuna karar vermiş. Gelin bu paradoksu 2011 yılının Ukrayna açısından nasıl geçtiğine göz atarken beraber analiz edelim.
+**![haber](http://www.arsiv.tuid.org.ua/images/haber/royce.jpg)****Ukrayna Bir Yıldız Ülke mi? **Ukrayna’da yüksek hacimli iş yapan bir Türk firmasının üst düzey yöneticisi olan arkadaşımla geçtiğimiz günlerde sohbet ederken paylaştığı bir anekdotun giriş cümlesiydi bu yazının başlığı “Ukrayna Bir Yıldız Ülke mi?” Çalıştığı firmanın İstanbul’daki merkeziyle, Kiev’deki ofisleri doğal olarak belirli aralıklarla Ukrayna’nın makroekonomik rakamlarını paylaşıyordu. Bir gün İstanbul’dan aranmışlar, ne kadar iyi ekonomik göstergelere sahip bir ülkede iş yapıyoruz, bunun farkında mısını diye? Arkadaşım bir, her gün yaşadığı gerçeklere, bir de rakamlara bakmış, ortada bir paradoks olduğuna karar vermiş. Gelin bu paradoksu 2011 yılının Ukrayna açısından nasıl geçtiğine göz atarken beraber analiz edelim.
 
  
 

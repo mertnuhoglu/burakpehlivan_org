@@ -6,7 +6,7 @@ tags: ["Beşiktaş", "Dinamo Kiev", "Kiev", "Spor", "Ukrayna Beşiktaşlılar De
 type: post
 ---
 
-![haber](http://tuid.org.ua/images/haber/bes1.jpg)Beşiktaş'ın Dinamo Kiev ile oynayacağı UEFA Avrupa Ligi grup maçı öncesi iki takım taraftarları Kiev'de maçın oynanacağı Valeriy Lobanovskiy Stadı'nda bir araya geldi.Dinamo Kiev Fan Kulübü Başkanı Sergiy Mıhaylenko, Ukrayna Beşiktaşlılar Derneği yönetimini maçın oynanacağı Valeriy Lobanovskiy Stadı'nda ağırladı. Sergiy Mıhaylenko, Beşiktaşlılar’a maç öncesinde, Dinamo Kiev stadını ve takımın müzesini gezdirerek, kulübün tarihi hakkında bilgi verdi.Beşiktaşlılar maç öncesi ve sonrası teknik adamların açıklama yaptığı basın odasında da hatıra fotoğrafı çektirdi. Stattaki incelemelerde bulunan Beşiktaşlılar’a stattaki yenileme projeleri hakkında bilgi verildi.Sergiy Mıhaylenko 'MAÇ ESNASINDA RAKİP, SONRA REFİK OLMALIYIZ'
+![haber](http://arsiv.tuid.org.ua/images/haber/bes1.jpg)Beşiktaş'ın Dinamo Kiev ile oynayacağı UEFA Avrupa Ligi grup maçı öncesi iki takım taraftarları Kiev'de maçın oynanacağı Valeriy Lobanovskiy Stadı'nda bir araya geldi.Dinamo Kiev Fan Kulübü Başkanı Sergiy Mıhaylenko, Ukrayna Beşiktaşlılar Derneği yönetimini maçın oynanacağı Valeriy Lobanovskiy Stadı'nda ağırladı. Sergiy Mıhaylenko, Beşiktaşlılar’a maç öncesinde, Dinamo Kiev stadını ve takımın müzesini gezdirerek, kulübün tarihi hakkında bilgi verdi.Beşiktaşlılar maç öncesi ve sonrası teknik adamların açıklama yaptığı basın odasında da hatıra fotoğrafı çektirdi. Stattaki incelemelerde bulunan Beşiktaşlılar’a stattaki yenileme projeleri hakkında bilgi verildi.Sergiy Mıhaylenko 'MAÇ ESNASINDA RAKİP, SONRA REFİK OLMALIYIZ'
 
 Görüşmede, Beşiktaşlı taraftarlarla bir araya gelmekten dolayı mutlu olduklarını söyleyen Sergiy Mıhaylenko, burada yaptığı açıklamada; " Ukrayna Beşiktaşlılar Derneği'ni kendi fan külümüzde ağırlamaktan dolayı çok memnun oldum. Sahada ve saha dışında sağlıklı rekabet ilişkilerinin olması önemli buluyorum. Biz sadece maç esnasında rakip oluyoruz. Daha sonra refik olmaya devam etmeliyiz. Herkes maç anında kendi takımını destekliyor. Bunun dışında bir araya gelip maçları değerlendirmeliyiz. Doğru olanı bu ve böyle de yapmalıyız." dedi.
 
@@ -16,13 +16,13 @@ Ukrayna Beşiktaşlılar Derneği Yönetim Kurulu Başkanı Burak Pehlivan ise y
 
 Beşiktaşlıların, Dinamo Kiev stadına yaptıkları ziyaret iki taraftar derneği başkanlarının forma değişimi ve dernekler arasında işbirliği protokolü imzalamasıyla son buldu.
 Stat ziyaretinin ardından, Ukrayna Beşiktaşlılar Derneği, bir Türk restoranında Dinamo Kievlilere yemek verdi. Geceye eski Fenerbahçe Oyuncusu, Dinamo Kiev'in yardımcı teknik direktörü Sergey Rebrov da katıldı.
-![haber](http://tuid.org.ua/images/haber/bes2.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/bes2.jpg)
 
-![haber](http://tuid.org.ua/images/haber/bes3.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/bes3.jpg)
 
-![haber](http://tuid.org.ua/images/haber/bes4.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/bes4.jpg)
 
-![haber](http://tuid.org.ua/images/haber/bes5.jpg)
+![haber](http://arsiv.tuid.org.ua/images/haber/bes5.jpg)
 
  
 

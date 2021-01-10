@@ -6,7 +6,7 @@ tags: ["Dernek", "işadamları", "işbirliği", "petrol", "socar", "TUİD", "TU�
 type: post
 ---
 
-![haber](http://www.tuid.org.ua/images/haber/socar1.jpg)
+![haber](http://www.arsiv.tuid.org.ua/images/haber/socar1.jpg)
 
 **TUİD ve SOCAR \* Arasında Dev İşbirliği**
 
