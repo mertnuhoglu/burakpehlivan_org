@@ -6,7 +6,7 @@ tags: ["Ekonomi", "Euro 2012", "euro 2012 ukrayna kazanc", "euro2012 gelirleri",
 type: post
 ---
 
-[![alt](http://tuid.org.ua/wp-content/uploads/2012/07/sampiyonadan-sonra-Burak-Pehlivan-1024x692.jpg "Fireworks are let off in the fanzone in")](http://tuid.org.ua/wp-content/uploads/2012/07/sampiyonadan-sonra-Burak-Pehlivan.jpg)
+[![alt](http://arsiv.tuid.org.ua/wp-content/uploads/2012/07/sampiyonadan-sonra-Burak-Pehlivan-1024x692.jpg "Fireworks are let off in the fanzone in")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/07/sampiyonadan-sonra-Burak-Pehlivan.jpg)
 
 Ukrayna ve Polonya’nın ortaklaşa düzenlendiği Avrupa Futbol Şampiyonası, İspanya’nın şampiyonluğuyla geride kaldı. Şampiyona esnasında yalnızca 2 maçı Kiev’de stadyumda canlı olarak izleyebildim. Bu maçlardan ilki, İngiltere ve İtalya arasındaki çeyrek final maçı, diğeri ise finaldi. Yoğun iş temposuna ve İspanya İtalya maçının oynanacağı dönemde İstanbul’a gitme zorunluluğuma rağmen, final maçı için Kiev’de kaldım. Kaldığıma da değdi doğrusu. Final, futbol olarak çok üst düzeyde değildi ve maproç finale yakışan bir çekişmede geçmedi belki ama bu maçta statta olmasaydım, bu yazıdaki değerlendirmelerim kanımca eksik kalacaktı.
 

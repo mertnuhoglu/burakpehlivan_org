@@ -6,7 +6,7 @@ tags: ["başkanvekili", "Burak Pehlivan", "İrina Pakrovskaya", "istanbul", "Kie
 type: post
 ---
 
-![DSCN6513](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6513.jpg)
+![DSCN6513](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6513.jpg)
 
 Ukrayna’nın en prestijli üniversitesi Şevçenko Üniversitesi’nin Türkoloji Bölümü’nün davetiyle, bu okulda Türkçe öğrenimi gören öğrencilere, TUİD yönetim Kurulu Başkanvekili tarafından Türkiye Cumhuriyeti’nin Kuruluşu, İki Ülkenin bugünkü ekonomik ilişkileri ve kariyer fırsatlarıyla ilgili bir konferans verildi.
 
@@ -34,13 +34,13 @@ Türkiye ve Ukrayna arasındaki ekonomik ilişkiler çok gelişti
 Şevçenko Üniversitesi Türkoloji Bölümü başkanı İrina Pakrovskaya ise Burak Pehlivan’ı ve TUİD yöneticilerini burada ağırlamaktan mutlu olduklarını ifade ederken, kendi okuduğu dönemlerden bu yana Türkiye ve Ukrayna arasındaki ekonomik kültürel ilişkilerin çok geliştiğini ve bundan büyük mutluluk duyduğunun altını çizdi.
 Konferans soru cevap bölümü ve öğrencilerin yaptıkları çalışmaların sergilenmesiyle sona erdi.
 
-![DSCN6506](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6506.jpg)
-![DSCN6498](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6498.jpg)
-![DSCN6496](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6496.jpg)
+![DSCN6506](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6506.jpg)
+![DSCN6498](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6498.jpg)
+![DSCN6496](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6496.jpg)
 
-![DSCN6530](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6530.jpg)
-![DSCN6520](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6520.jpg)
-![DSCN6519](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6519.jpg)
-![DSCN6518](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6518.jpg)
-![DSCN6508](http://tuid.org.ua/wp-content/uploads/2013/11/DSCN6508.jpg)
+![DSCN6530](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6530.jpg)
+![DSCN6520](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6520.jpg)
+![DSCN6519](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6519.jpg)
+![DSCN6518](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6518.jpg)
+![DSCN6508](http://arsiv.tuid.org.ua/wp-content/uploads/2013/11/DSCN6508.jpg)
 Out

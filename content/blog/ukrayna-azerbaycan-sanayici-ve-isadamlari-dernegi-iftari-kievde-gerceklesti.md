@@ -17,52 +17,52 @@ Organizasyonda, son olarak söz alan Türk Ukrayna İşadamları Derneği yönet
 
 Kaynak: www. tuid.org.ua
 
-[![DSCN9077](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9077.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9077.jpg)
+[![DSCN9077](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9077.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9077.jpg)
 
-[![DSCN9078](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9078.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9078.jpg)
+[![DSCN9078](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9078.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9078.jpg)
 
-![DSCN9113](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9113.jpg)
-
- 
-
-[![DSCN9081](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9081.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9081.jpg)
-
-![DSCN9141](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9141.jpg)
-
-![DSCN9079](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9079.jpg)
+![DSCN9113](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9113.jpg)
 
  
 
-![DSCN9106](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9106.jpg)
+[![DSCN9081](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9081.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9081.jpg)
+
+![DSCN9141](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9141.jpg)
+
+![DSCN9079](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9079.jpg)
 
  
 
-![DSCN9082](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9082.jpg)
+![DSCN9106](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9106.jpg)
 
-![DSCN9133](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9133.jpg)
+ 
 
-[![DSCN9092](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9092.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9092.jpg)
+![DSCN9082](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9082.jpg)
 
-![DSCN9122](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9122.jpg)
+![DSCN9133](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9133.jpg)
 
-[![DSCN9097](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9097.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9097.jpg)
+[![DSCN9092](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9092.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9092.jpg)
 
-[![DSCN9098](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9098.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9098.jpg)
+![DSCN9122](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9122.jpg)
 
-![DSCN9135](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9135.jpg)
+[![DSCN9097](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9097.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9097.jpg)
 
-![DSCN9088](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9088.jpg)
+[![DSCN9098](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9098.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9098.jpg)
 
-[![DSCN9108](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9108.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9108.jpg)
+![DSCN9135](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9135.jpg)
 
-![DSCN9140](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9140.jpg)
+![DSCN9088](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9088.jpg)
 
-[![DSCN9114](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9114.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9114.jpg)
+[![DSCN9108](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9108.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9108.jpg)
 
-![DSCN9137](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9137.jpg)
+![DSCN9140](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9140.jpg)
 
-[![DSCN9121](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9121.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9121.jpg)
+[![DSCN9114](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9114.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9114.jpg)
 
-[![DSCN9125](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9125.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9125.jpg)
+![DSCN9137](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9137.jpg)
 
-[![DSCN9139](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9139.jpg)](http://tuid.org.ua/wp-content/uploads/2014/07/DSCN9139.jpg)
+[![DSCN9121](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9121.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9121.jpg)
+
+[![DSCN9125](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9125.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9125.jpg)
+
+[![DSCN9139](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9139.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9139.jpg)

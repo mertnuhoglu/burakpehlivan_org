@@ -6,7 +6,7 @@ tags: ["daib", "Halit Ovale", "Hüseyin Ergani", "Mehmet Belenbaşı", "Mehmet S
 type: post
 ---
 
-[![tuid-genel-merkezini-tusiab-heyeti-ziyaret-etti](http://tuid.org.ua/wp-content/uploads/2013/02/tuid-genel-merkezini-tusiab-heyeti-ziyaret-etti.jpg)](http://tuid.org.ua/wp-content/uploads/2013/02/tuid-genel-merkezini-tusiab-heyeti-ziyaret-etti.jpg)
+[![tuid-genel-merkezini-tusiab-heyeti-ziyaret-etti](http://arsiv.tuid.org.ua/wp-content/uploads/2013/02/tuid-genel-merkezini-tusiab-heyeti-ziyaret-etti.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2013/02/tuid-genel-merkezini-tusiab-heyeti-ziyaret-etti.jpg)
 
 Türk Ukrayna Sanayici ve İşadamları Derneği(TUİD) genel merkezine, Türkiye ve Ukraynalı Sanayici ve İşadamları Birliği(TUSİAB) heyeti bir nezaket ziyareti gerçekleştirdi. Heyette, dernek başkanı Servet Bayrak, Dernek Onursal Başkanı Mesut Orhon, Başkanvekili Halit Ovale ve yönetim kurulu üyesi Mehmet Belenbaşı hazır bulundular.
 

@@ -6,7 +6,7 @@ tags: ["Burak Pehlivan", "Cem Murat Aytaç", "Dalgakıran Ukrayna", "Eczacıbaş
 type: post
 ---
 
-[![photo (2)](http://tuid.org.ua/wp-content/uploads/2013/03/photo-21.jpg)](http://tuid.org.ua/taraf-yazari-hidir-gevis-ukraynadaki-turk-is-dunyasini-yazdi/photo-2-2)
+[![photo (2)](http://arsiv.tuid.org.ua/wp-content/uploads/2013/03/photo-21.jpg)](http://tuid.org.ua/taraf-yazari-hidir-gevis-ukraynadaki-turk-is-dunyasini-yazdi/photo-2-2)
 
 **Türkiye'ye sosyal medyayı ilk getiren gazetecilerden, sosyal medyanın sempatik bir o kadar da sembol isimlerinden Hıdır Geviş, Türk Ukrayna İşadamları Derneği (TUİD)'in davetlisi olarak geldiği Ukrayna'da, ilk yazısıyla Ukrayna'daki Türk İşadamlarını yazdı.**
 

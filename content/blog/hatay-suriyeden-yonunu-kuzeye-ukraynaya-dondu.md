@@ -6,7 +6,7 @@ tags: ["Antakya Karoserciler Derneği", "antakya Ukrayna THY", "hatay", "Sabit Y
 type: post
 ---
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/08/hatay-suriyeden-yonunu-kuzeye-ukraynaya-dondu.jpg "hatay-suriyeden-yonunu-kuzeye-ukraynaya-dondu")](http://tuid.org.ua/wp-content/uploads/2012/08/hatay-suriyeden-yonunu-kuzeye-ukraynaya-dondu.jpg)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/08/hatay-suriyeden-yonunu-kuzeye-ukraynaya-dondu.jpg "hatay-suriyeden-yonunu-kuzeye-ukraynaya-dondu")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/08/hatay-suriyeden-yonunu-kuzeye-ukraynaya-dondu.jpg)
 
 Türk Ukrayna İşadamları Derneği, Kiev’de önemli bir heyeti konuk etti. Suriye’de yaşanan sıkıntılardan dolayı sınır ticareti durma noktasına gelen ve ihracat pazarlarında hızla çeşitlendirme arayışında olan Antakyalı işadamları, Başbakan Erdoğan’ın Ukrayna gezisinin hemen ertesinde Kiev’e bir iş ziyareti düzenledi. Antakya Karoserciler Odası Başkanı Zeki Keser başkanlığındaki heyette, derneğin yönetim kurulu üyelerin yanı sıra Mersin Demirciler Odası Yönetim Kurulu Başkanı Sabit Yelkovan da bulundu.
 

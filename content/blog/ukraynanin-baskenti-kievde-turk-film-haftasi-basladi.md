@@ -6,7 +6,7 @@ tags: ["Berat Yıldız", "Çağan Irmak Ukrayna", "Kiev Sinema", "Kiev Türk Fil
 type: post
 ---
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/09/ukraynanin-baskenti-kievde-turk-film-haftasi-basladi.jpg "ukraynanin-baskenti-kievde-turk-film-haftasi-basladi")](http://tuid.org.ua/wp-content/uploads/2012/09/ukraynanin-baskenti-kievde-turk-film-haftasi-basladi.jpg)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/ukraynanin-baskenti-kievde-turk-film-haftasi-basladi.jpg "ukraynanin-baskenti-kievde-turk-film-haftasi-basladi")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/ukraynanin-baskenti-kievde-turk-film-haftasi-basladi.jpg)
 
 Kiev’de başlayan Türk Filmleri Festivali’nin gala filmi ismi yönetmenliğini Çağan Irmak’ın yaptığı Dedemin İnsanları filmiydi. Film gösterimi öncesinde Kiev Sineması’nda basın toplantısı düzenlenirken, basın toplantısı sonrasında,sinema holünde gala için gelen sinemaseverlere Kiev Kültür ve Turizm Müşavirliğince bir resepsiyon verildi. Canlı klasik müziği eşliğinde Ukraynalı davetlilere Türk mutfağına ait tatlar ikram edildi.
 

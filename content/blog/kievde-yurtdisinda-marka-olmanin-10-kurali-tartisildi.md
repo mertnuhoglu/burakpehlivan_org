@@ -6,7 +6,7 @@ tags: ["Kiev'de konferans", "Kiev'de markalaşma", "marka danışmanı", "şükr
 type: post
 ---
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/09/kievde-yurtdisinda-marka-olmanin-10-kurali-tartisildi.jpg "kievde-yurtdisinda-marka-olmanin-10-kurali-tartisildi")](http://tuid.org.ua/wp-content/uploads/2012/09/kievde-yurtdisinda-marka-olmanin-10-kurali-tartisildi.jpg)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/kievde-yurtdisinda-marka-olmanin-10-kurali-tartisildi.jpg "kievde-yurtdisinda-marka-olmanin-10-kurali-tartisildi")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/kievde-yurtdisinda-marka-olmanin-10-kurali-tartisildi.jpg)
 
 Uluslararası Marka Danışmanı Şükrü Terzi, Kiev’de, Türk Ukrayna İşadamları Derneği Genel Merkezi’nde yurtdışında marka olmanın 10 altın kuralı adlı sunumunu gerçekleştirdi. Yoğun katılımın gerçekleştiği sunumda Şükrü Terzi 10 altın kuralı “ vizyon, ait olma duygusu, simge, yayılma, ihtişam, duyulara seslenme, ritüel, biz ve onlar, öykü anlatımı ve gizem” olarak açıkladı.
 

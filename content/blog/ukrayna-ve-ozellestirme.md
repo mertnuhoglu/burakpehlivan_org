@@ -6,7 +6,7 @@ tags: ["Ekonomi", "euro2012", "kalkınma", "ozellestirme", "ozellestirme veriler
 type: post
 ---
 
-![](http://tuid.org.ua/wp-content/uploads/2012/06/ukrayna-ihale.jpg "ukrayna-ihale")
+![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/06/ukrayna-ihale.jpg "ukrayna-ihale")
 
 Kiev’de havalar sıcak, doğa tamamen canlanmış durumda, her yer yemyeşil. Şehre 2012 Avrupa Futbol Şampiyonası’nı izlemek için yüzbinlerce yerli ve yabancı turist geldi. Özellikle Kreşatik, Sagaydaçnava, Krasnaarmeyskaya gibi caddelerde karnaval havası hakim. Artık kaldırımlardan, sokaklara, yollara taşan restoran, kafe masalarında yemekler yeniliyor, içkiler içiliyor, şarkılar söyleniyor, rakip takım taraftarları beraber, dostça maç izliyorlar. Böyle bir atmosferde teknik bir yazı yazmak bana da keyif vermiyor ancak Ukrayna için önemli bir konu olan “özelleştirme’yi” de bu yazıda ele almaktan kendimi alıkoyamıyorum. İnşallah önümüzdeki haftalarda Ukrayna’nın şampiyona maçlarını oynadığı şehirleri kendi gözümle değerlendireceğim daha “keyifli” yazılar yazacağım.
 
@@ -26,7 +26,7 @@ Ukrayna’da, 2005 yılından sonra ise gerçek manada özelleştirme süreci ba
 [www.burakpehlivan.org](http://www.burakpehlivan.org/)
 [http://twitter.com/bpehlivan](http://twitter.com/bpehlivan)
 
-[![alt](http://tuid.org.ua/wp-content/uploads/2012/06/table1.png "table1")](http://tuid.org.ua/wp-content/uploads/2012/06/table1.png)
+[![alt](http://arsiv.tuid.org.ua/wp-content/uploads/2012/06/table1.png "table1")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/06/table1.png)
 
  
 

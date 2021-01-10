@@ -6,7 +6,7 @@ tags: ["Dış Ticaret", "Ekonomi", "ertuğrul günay", "Ertuğrul Günay Ukrayna
 type: post
 ---
 
-![](http://tuid.org.ua/wp-content/uploads/2012/09/erdogan-prime-minister-visit-ukraine.jpg)
+![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/erdogan-prime-minister-visit-ukraine.jpg)
 
 Türkiye Cumhuriyeti Başbakanı Recep Tayyip Erdoğan, Ukrayna’ya birkaç hafta önce iki ülke ilişkileri açısından tarihi derecede önemli sayılabilecek üç günlük resmi bir ziyaret gerçekleştirdi. Gezinin hemen sonrasında Ukrayna’nın önde gelen İngilizce yayın organı Kyiv Post için geziyi ve sonuçlarını değerlendiren bir yazı kaleme almıştım. Bu yazımda ise hem geziyi hem de gezi sonrasında yaşanan gelişmeleri daha etraflıca değerlendirmeye çalışacağım.
 

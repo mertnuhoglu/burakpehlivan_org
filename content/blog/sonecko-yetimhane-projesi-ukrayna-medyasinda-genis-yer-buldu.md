@@ -6,7 +6,7 @@ tags: ["Politika", "TUİD", "TUİD (Türk Ukrayna İşadamları Derneği)", "tur
 type: post
 ---
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/08/tuid-yabanci-basinda.png "tuid-yabanci-basinda")](http://tuid.org.ua/wp-content/uploads/2012/08/tuid-yabanci-basinda.png)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/08/tuid-yabanci-basinda.png "tuid-yabanci-basinda")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/08/tuid-yabanci-basinda.png)
 
 Türk Ukrayna İşadamları Derneği, TUİD’in öncülüğünde gerçekleştirilen Odesa Soneçko Yetimhane Tadilat ve Teşrifatı Projesi Türkiye’deki ulusal basının yanı sıra gerek Odesa’daki yerel medyada gerekse Ukrayna ulusal medyasında geniş yer bulmaya devam ediyor. Odesa’daki bazı televizyon kanalları canlı ve banttan projenin açılışını izleyicilerine duyururlarken, Azerbaycan 1. Kanalı’da haber programlarında projeye yer verdi. Ukrayna’da İngilizce yayım yapan iki önemli gazete ve dergi Kyiv Post ve What’s On ise projeyi ayrıntılı bir biçimde sayfalarına taşıdı. Önümüzdeki günlerde ise Ukrayna’nın iş dünyası konusunda en önemli kanalı olan Perviy Delovıy Kanal’da TUİD ve proje hakkında ayrıntılı bir haber, röportaj yer alacak.
 

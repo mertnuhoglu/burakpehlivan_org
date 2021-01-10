@@ -6,7 +6,7 @@ tags: ["Ahmet Oğuz", "Borş Çorbası", "Gizia Ukrayna", "gör düğün gibi", 
 type: post
 ---
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/09/ukrayna-kulturu-tuidin-destegiyle-turk-seyircisiyle-bulustu.png "ukrayna-kulturu-tuidin-destegiyle-turk-seyircisiyle-bulustu")](http://tuid.org.ua/wp-content/uploads/2012/09/ukrayna-kulturu-tuidin-destegiyle-turk-seyircisiyle-bulustu.png)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/ukrayna-kulturu-tuidin-destegiyle-turk-seyircisiyle-bulustu.png "ukrayna-kulturu-tuidin-destegiyle-turk-seyircisiyle-bulustu")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/ukrayna-kulturu-tuidin-destegiyle-turk-seyircisiyle-bulustu.png)
 Kanaltürk’ün Asya’dan, Avrupa’ya, Afrika’dan, Amerika’ya dünyanın farklı coğrafyalarının düğünlerini ve düğün geleneklerini tanıttığı programı “Gör Düğün Gibi”nin ilk bölümü Türk Ukrayna İşadamları Derneği(TUİD)’in desteğiyle Ukrayna’da, Lvov’da çekildi.
 
 Programda gerçek bir Ukrayna düğünün nasıl olduğu en ince ayrıntılarına kadar aktarıldı. Programın Kiev ayağı ise Gizia Ukrayna’nın desteğiyle gerçekleştirildi. Kiev’in en popüler restoranlarının başında gelen Safe’de Ukrayna’nın dünyada en çok tanınan lezzeti Borş Çorbası’nın yapımı ve tadımı gerçekleştirildi.

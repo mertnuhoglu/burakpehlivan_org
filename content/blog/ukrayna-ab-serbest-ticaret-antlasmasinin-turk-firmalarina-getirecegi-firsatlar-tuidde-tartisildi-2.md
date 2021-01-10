@@ -23,22 +23,22 @@ www.tuid.org.ua
 
  
 
-![IMG_9511](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9511.jpg)
+![IMG_9511](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9511.jpg)
 
-[![IMG_9498](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9498.jpg)](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9498.jpg)
+[![IMG_9498](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9498.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9498.jpg)
 
-[![IMG_9519](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9519.jpg)](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9519.jpg)
+[![IMG_9519](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9519.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9519.jpg)
 
-[![IMG_9521](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9521.jpg)](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9521.jpg)
+[![IMG_9521](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9521.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9521.jpg)
 
-![IMG_9540](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9540.jpg)
+![IMG_9540](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9540.jpg)
 
-[![IMG_9524](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9524.jpg)](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9524.jpg)
+[![IMG_9524](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9524.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9524.jpg)
 
-[![IMG_9530](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9530.jpg)](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9530.jpg)
+[![IMG_9530](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9530.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9530.jpg)
 
-[![IMG_9531](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9531.jpg)](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9531.jpg)
+[![IMG_9531](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9531.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9531.jpg)
 
-[![IMG_9533](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9533.jpg)](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9533.jpg)
+[![IMG_9533](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9533.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9533.jpg)
 
-[![IMG_9535](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9535.jpg)](http://tuid.org.ua/wp-content/uploads/2016/01/IMG_9535.jpg)
+[![IMG_9535](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9535.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9535.jpg)

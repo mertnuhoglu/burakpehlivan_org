@@ -30,7 +30,7 @@ This is one of the issues that might come up in discussion again next month, whe
 
 .
 
-![](http://tuid.org.ua/wp-content/uploads/2012/09/erdogan-prime-minister-visit-ukraine.jpg)
+![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/erdogan-prime-minister-visit-ukraine.jpg)
 
 Improvements of transport connection between the two nations will be another issue. Although the current state of air and sea travel is quite adequate, it will fall behind should tourism and business traffic grows.
 

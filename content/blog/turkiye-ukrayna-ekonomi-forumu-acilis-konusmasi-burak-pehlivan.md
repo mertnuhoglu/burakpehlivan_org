@@ -25,45 +25,45 @@ Beni sabırla dinlediğiniz için hepinize teşekkür ederim.
 
 **Burak PEHLİVAN**
 
-**![DSCN0528](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN05281.jpg)**
+**![DSCN0528](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN05281.jpg)**
 
-![DSCN0773](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0773.jpg)
+![DSCN0773](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0773.jpg)
 
-![DSCN0647](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN06471.jpg)
+![DSCN0647](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN06471.jpg)
 
-![DSCN0803](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0803.jpg)
-![DSCN0475](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN04751.jpg)
+![DSCN0803](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0803.jpg)
+![DSCN0475](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN04751.jpg)
 
-![DSCN0852](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0852.jpg)
-![DSCN0375](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0375.jpg)
+![DSCN0852](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0852.jpg)
+![DSCN0375](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0375.jpg)
 
-![DSCN0389](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0389.jpg)
+![DSCN0389](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0389.jpg)
 
-![DSCN0400](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0400.jpg)
+![DSCN0400](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0400.jpg)
 
-![DSCN0401](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0401.jpg)
+![DSCN0401](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0401.jpg)
 
-![DSCN0424](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0424.jpg)
+![DSCN0424](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0424.jpg)
 
-![DSCN0444](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0444.jpg)
+![DSCN0444](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0444.jpg)
 
-![DSCN0474](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0474.jpg)
+![DSCN0474](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0474.jpg)
 
-![DSCN0861](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0861.jpg)
+![DSCN0861](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0861.jpg)
 
-![DSCN0494](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0494.jpg)
+![DSCN0494](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0494.jpg)
 
-![DSCN0575](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0575.jpg)
+![DSCN0575](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0575.jpg)
 
-![DSCN0647](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0647.jpg)
+![DSCN0647](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0647.jpg)
 
-![DSCN0656](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0656.jpg)
+![DSCN0656](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0656.jpg)
 
-![DSCN0718](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0718.jpg)
-![DSCN0724](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0724.jpg)
+![DSCN0718](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0718.jpg)
+![DSCN0724](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0724.jpg)
 
-![DSCN0756](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0756.jpg)
+![DSCN0756](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0756.jpg)
 
-![DSCN0802](http://tuid.org.ua/wp-content/uploads/2015/07/DSCN0802.jpg)
+![DSCN0802](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0802.jpg)
 
-![TUID](http://tuid.org.ua/wp-content/uploads/2015/07/TUID-767x1024.jpg)
+![TUID](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/TUID-767x1024.jpg)

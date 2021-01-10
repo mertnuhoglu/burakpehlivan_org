@@ -9,7 +9,7 @@ type: post
 
 
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/07/17334290.jpg "17334290")](http://tuid.org.ua/wp-content/uploads/2012/07/17334290.jpg)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/07/17334290.jpg "17334290")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/07/17334290.jpg)
 
 
 

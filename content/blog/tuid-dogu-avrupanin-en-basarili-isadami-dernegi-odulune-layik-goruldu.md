@@ -6,7 +6,7 @@ tags: ["Bükreş", "Doğu Avrupa Türk İş Adamları Birliği", "Polonya", "POT
 type: post
 ---
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/11/tuid-dogu-avrupanin-en-basarili-isadami-dernegi-odulune-layik-goruldu.png "tuid-dogu-avrupanin-en-basarili-isadami-dernegi-odulune-layik-goruldu")](http://tuid.org.ua/wp-content/uploads/2012/11/tuid-dogu-avrupanin-en-basarili-isadami-dernegi-odulune-layik-goruldu.png)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/11/tuid-dogu-avrupanin-en-basarili-isadami-dernegi-odulune-layik-goruldu.png "tuid-dogu-avrupanin-en-basarili-isadami-dernegi-odulune-layik-goruldu")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/11/tuid-dogu-avrupanin-en-basarili-isadami-dernegi-odulune-layik-goruldu.png)
 
 Türk Ukrayna İşadamları Derneği(TUİD), Romanya’nın ilk ve tek Türkçe gazetesi olan Anayurt Gazetesi tarafından, Doğu Avrupa’da yılın işadamı derneği ödülüne layık görüldü. 24 Kasım 2012 tarihinde Bükreş’te düzenlenecek ödül gecesinde, TUİD’e ödülü takdim edilecek. Töreni, Türkiye Cumhuriyeti Bükreş Büyükelçisi Ömür Şölendil de onurlandıracak.
 

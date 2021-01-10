@@ -6,7 +6,7 @@ tags: ["Antonov İşbirliği", "Dış Ticaret", "Ekonomi", "kurgu Video", "Turiz
 type: post
 ---
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/12/kurgu-dayak-videosu-ve-ukrayna-turkiye-iliskilerinin-gercek-gundemi.jpg "kurgu-dayak-videosu-ve-ukrayna-turkiye-iliskilerinin-gercek-gundemi")](http://tuid.org.ua/wp-content/uploads/2012/12/kurgu-dayak-videosu-ve-ukrayna-turkiye-iliskilerinin-gercek-gundemi.jpg)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/12/kurgu-dayak-videosu-ve-ukrayna-turkiye-iliskilerinin-gercek-gundemi.jpg "kurgu-dayak-videosu-ve-ukrayna-turkiye-iliskilerinin-gercek-gundemi")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/12/kurgu-dayak-videosu-ve-ukrayna-turkiye-iliskilerinin-gercek-gundemi.jpg)
 
 Birkaç gündür Türkiye ve Ukrayna medyasında kurgu bir video üzerinden üretilen haberler etrafında oluşan bir gündem hakim. Benim telefonlarım da, Türk Ukrayna İşadamları Derneği’nin telefonları, e-maili ve faksı da bu konuyla ilgili tepkilerle meşgul. Ukrayna’daki Türkiye, Türkiye’de ise Ukrayna imajına dönük olumsuz algı oluşturmayı planlayan bu girişim kısa vadede kısmen başarılı olmuş gözükse de gerçekler nihayetinde ortaya çıkmıştır. Bu düzmece video ve benzeri girişimler asla iki ülkenin bugün altın çağını yaşayan iktisadi, ticari, siyasi ve kültürel ilişkilerine gölge düşüremeyecektir.
 

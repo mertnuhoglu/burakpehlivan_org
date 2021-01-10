@@ -6,7 +6,7 @@ tags: ["Cem Murat Aytaç", "Kiev'de Cumhuriyet Bayramı", "Mehmet Samsar", "Mevl
 type: post
 ---
 
-[![](http://tuid.org.ua/wp-content/uploads/2012/11/cumhuriyet-bayrami-kievde-ilk-kez-bu-kadar-coskuyla-kutlandi.jpg "cumhuriyet-bayrami-kievde-ilk-kez-bu-kadar-coskuyla-kutlandi")](http://tuid.org.ua/wp-content/uploads/2012/11/cumhuriyet-bayrami-kievde-ilk-kez-bu-kadar-coskuyla-kutlandi.jpg)
+[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/11/cumhuriyet-bayrami-kievde-ilk-kez-bu-kadar-coskuyla-kutlandi.jpg "cumhuriyet-bayrami-kievde-ilk-kez-bu-kadar-coskuyla-kutlandi")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/11/cumhuriyet-bayrami-kievde-ilk-kez-bu-kadar-coskuyla-kutlandi.jpg)
 
 Cumhuriyetimizin 89. Yıldönümü Kiev’de, Türkiye Cumhuriyeti Kiev Büyükelçiliği’nin Kiev Belediye Sarayı’nda gerçekleştirdiği coşkulu bir resepsiyon ile kutlandı. Resepsiyona; Ukrayna Dışişleri Bakanı Yardımcısı Viktor Mayko, AK Parti Antalya Milletvekili Mevlüt Çavuşoğlu, Kırım Tatar Milli Meclisi Başkanı ve Ukrayna milletvekili Mustafa Abdülcemil Kırımoğlu, TUİD Yönetim Kurulu Başkanı Cem Murat Aytaç, Başkanvekili Burak Pehlivan, TUİD Yönetim Kurulu üyeleleri, üst düzey devlet erkanı, büyükelçiler, dış misyon şefleri, TUİD üyesi Türk işadamları, Türk vatandaşları ve büyükelçilik çalışanları katılım gösterdi.
 
