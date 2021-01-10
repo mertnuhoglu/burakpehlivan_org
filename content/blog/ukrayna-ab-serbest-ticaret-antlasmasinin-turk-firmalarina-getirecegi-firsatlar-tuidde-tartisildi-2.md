@@ -23,22 +23,22 @@ www.tuid.org.ua
 
  
 
-![IMG_9511](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9511.jpg)
+![IMG_9511](https://burakpehlivan.org/tuid_images/IMG_9511.jpg)
 
-[![IMG_9498](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9498.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9498.jpg)
+[![IMG_9498](https://burakpehlivan.org/tuid_images/IMG_9498.jpg)
 
-[![IMG_9519](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9519.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9519.jpg)
+[![IMG_9519](https://burakpehlivan.org/tuid_images/IMG_9519.jpg)
 
-[![IMG_9521](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9521.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9521.jpg)
+[![IMG_9521](https://burakpehlivan.org/tuid_images/IMG_9521.jpg)
 
-![IMG_9540](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9540.jpg)
+![IMG_9540](https://burakpehlivan.org/tuid_images/IMG_9540.jpg)
 
-[![IMG_9524](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9524.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9524.jpg)
+[![IMG_9524](https://burakpehlivan.org/tuid_images/IMG_9524.jpg)
 
-[![IMG_9530](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9530.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9530.jpg)
+[![IMG_9530](https://burakpehlivan.org/tuid_images/IMG_9530.jpg)
 
-[![IMG_9531](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9531.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9531.jpg)
+[![IMG_9531](https://burakpehlivan.org/tuid_images/IMG_9531.jpg)
 
-[![IMG_9533](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9533.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9533.jpg)
+[![IMG_9533](https://burakpehlivan.org/tuid_images/IMG_9533.jpg)
 
-[![IMG_9535](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9535.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2016/01/IMG_9535.jpg)
+[![IMG_9535](https://burakpehlivan.org/tuid_images/IMG_9535.jpg)

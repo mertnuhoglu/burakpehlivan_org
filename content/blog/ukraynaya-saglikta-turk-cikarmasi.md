@@ -6,7 +6,7 @@ tags: ["Cem Demirci Ukrayna", "Enginer Birdal", "Hamdi Şengel", "Mustafa Solak"
 type: post
 ---
 
-[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/ukraynaya-saglikta-turk-cikarmasi.jpg "ukraynaya-saglikta-turk-cikarmasi")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/09/ukraynaya-saglikta-turk-cikarmasi.jpg)
+[![](https://burakpehlivan.org/tuid_images/ukraynaya-saglikta-turk-cikarmasi.jpg)
 
 Türkiye’nin önde gelen hastaneleri ve tıp fakültelerinin de aralarında bulunduğu 38 ayrı kurum ve kuruluşun yöneticilerinden oluşan 75 kişilik sağlık tanıtım heyeti Ukrayna Sağlık fuarından sonra, Ukrayna ve Sağlık Sağlık Sektörü hakkında ayrıntılı bilgi almak için Türk Ukrayna İşadamları Derneği(TUİD)’ne bir çalışma ziyaretinde bulundu.
 

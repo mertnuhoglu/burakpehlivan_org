@@ -26,7 +26,7 @@ type: post
 
 
 
-**![haber](http://arsiv.tuid.org.ua/images/haber/serdarov.jpg)****Ukrayna’da 2012 Çok Zor Geçecek**
+**![haber](https://burakpehlivan.org/tuid_images/serdarov.jpg)****Ukrayna’da 2012 Çok Zor Geçecek**
 Dünya’nın en büyük danışmanlık ve denetim firmalarının başında gelen, Deloitte & Touche’ın Ukrayna, Beyaz Rusya ve Gürcistan’dan sorumlu Kurumsal Finans Direktör Vekili İbrahim Serdarov Türk Ukrayna İşadamları Derneği’nde(TUİD) Ukrayna’nın bugünkü durumu ve ülkedeki 2012 yılı beklentilerine ilişkin bir sunum gerçekleştirdi. TUİD Yönetim Kurulu Başkan Vekili Burak Pehlivan'ın moderatörlüğündeki etkinliğe TUİD üyelerinin ve Ukrayna Türk İş Dünyası’nın ilgisi büyüktü.
 
 TUİD Yönetim Kurulu Başkan Vekili Burak Pehlivan sunumun açılışında, TUİD olarak üyelerinin, ülkedeki Türk işadamlarının ve ülkeye gelebilecek potansiyel Türk sermayesinin ülkedeki gidişat konusunda doğru bir biçimde bilgilendirilmesine katkıda bulunma sorumluluğunda olduklarını ifade ederek “bugün gerçekleşecek sunumun ardından Ukrayna’daki en büyük Türk bankası olan Credit Europe’un Genel Müdürü Yusuf Dağtekin, T.C Kiev Büyükelçiliği Ticaret Başmüşaviri Mehmet Ali Erkan ve Sovyetler Birliği’nin efsanevi Dışişleri Bakanı, Gürcistan eski devlet başkanı Georgia Şevardnadze’nin aynı isme sahip yeğeni, Ukraynalı siyasetçi ve ekonomist Georgia Şevardnadze’nin katılacakları üç ayrı sunumla Ukrayna hakkında 4 farklı bakış açısının üyelere yansıtılmasını sağlayarak bu misyonu yerine getirmeye çalışacağız” dedi. Pehlivan, daha sonra sözü İbrahim Serdarov’a bıraktı.
@@ -44,19 +44,19 @@ Büyük ilgi gören etkinlik, Deloitte Ukrayna, Beyaz Rusya ve Gürcistan’dan 
 
 
 
-![haber](http://arsiv.tuid.org.ua/images/haber/serdarov11a.jpg)
+![haber](https://burakpehlivan.org/tuid_images/serdarov11a.jpg)
 
 
-![haber](http://arsiv.tuid.org.ua/images/haber/serdarov5.jpg)
+![haber](https://burakpehlivan.org/tuid_images/serdarov5.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/serdarov7.jpg)
+![haber](https://burakpehlivan.org/tuid_images/serdarov7.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/serdarov10.jpg)
+![haber](https://burakpehlivan.org/tuid_images/serdarov10.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/serdarov11.jpg)
+![haber](https://burakpehlivan.org/tuid_images/serdarov11.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/serdarov11a.jpg)
+![haber](https://burakpehlivan.org/tuid_images/serdarov11a.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/serdarov12.jpg)
+![haber](https://burakpehlivan.org/tuid_images/serdarov12.jpg)
 
 

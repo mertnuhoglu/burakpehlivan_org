@@ -17,7 +17,7 @@ type: post
 
 
 
-**![haber](http://arsiv.tuid.org.ua/images/haber/uager.jpg)**
+**![haber](https://burakpehlivan.org/tuid_images/uager.jpg)**
 
  
 

@@ -6,7 +6,7 @@ tags: ["basinda tuid", "Kiev'de Bayram", "Mehmet Ali Erkan", "TUİD (Türk Ukray
 type: post
 ---
 
-[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/01/DSCF0980-300x200.jpg "DSCF0980")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/01/DSCF0980.jpg)
+[![](https://burakpehlivan.org/tuid_images/DSCF0980.jpg)
 
 Türk Ukrayna İşadamları Derneği (TUİD)'in geleneksel Ramazan Bayramı bayramlaşması, derneğin Kiev'deki genel merkezinde gerçekleşti.
 

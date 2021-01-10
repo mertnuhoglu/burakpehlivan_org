@@ -11,7 +11,7 @@ type: post
 
 
 
-![haber](http://arsiv.tuid.org.ua/images/haber/bjkdernek.jpg)
+![haber](https://burakpehlivan.org/tuid_images/bjkdernek.jpg)
 
  
 

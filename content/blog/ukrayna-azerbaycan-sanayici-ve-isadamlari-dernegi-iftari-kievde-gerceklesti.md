@@ -17,52 +17,52 @@ Organizasyonda, son olarak söz alan Türk Ukrayna İşadamları Derneği yönet
 
 Kaynak: www. tuid.org.ua
 
-[![DSCN9077](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9077.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9077.jpg)
+[![DSCN9077](https://burakpehlivan.org/tuid_images/DSCN9077.jpg)
 
-[![DSCN9078](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9078.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9078.jpg)
+[![DSCN9078](https://burakpehlivan.org/tuid_images/DSCN9078.jpg)
 
-![DSCN9113](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9113.jpg)
-
- 
-
-[![DSCN9081](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9081.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9081.jpg)
-
-![DSCN9141](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9141.jpg)
-
-![DSCN9079](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9079.jpg)
+![DSCN9113](https://burakpehlivan.org/tuid_images/DSCN9113.jpg)
 
  
 
-![DSCN9106](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9106.jpg)
+[![DSCN9081](https://burakpehlivan.org/tuid_images/DSCN9081.jpg)
+
+![DSCN9141](https://burakpehlivan.org/tuid_images/DSCN9141.jpg)
+
+![DSCN9079](https://burakpehlivan.org/tuid_images/DSCN9079.jpg)
 
  
 
-![DSCN9082](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9082.jpg)
+![DSCN9106](https://burakpehlivan.org/tuid_images/DSCN9106.jpg)
 
-![DSCN9133](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9133.jpg)
+ 
 
-[![DSCN9092](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9092.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9092.jpg)
+![DSCN9082](https://burakpehlivan.org/tuid_images/DSCN9082.jpg)
 
-![DSCN9122](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9122.jpg)
+![DSCN9133](https://burakpehlivan.org/tuid_images/DSCN9133.jpg)
 
-[![DSCN9097](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9097.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9097.jpg)
+[![DSCN9092](https://burakpehlivan.org/tuid_images/DSCN9092.jpg)
 
-[![DSCN9098](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9098.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9098.jpg)
+![DSCN9122](https://burakpehlivan.org/tuid_images/DSCN9122.jpg)
 
-![DSCN9135](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9135.jpg)
+[![DSCN9097](https://burakpehlivan.org/tuid_images/DSCN9097.jpg)
 
-![DSCN9088](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9088.jpg)
+[![DSCN9098](https://burakpehlivan.org/tuid_images/DSCN9098.jpg)
 
-[![DSCN9108](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9108.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9108.jpg)
+![DSCN9135](https://burakpehlivan.org/tuid_images/DSCN9135.jpg)
 
-![DSCN9140](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9140.jpg)
+![DSCN9088](https://burakpehlivan.org/tuid_images/DSCN9088.jpg)
 
-[![DSCN9114](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9114.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9114.jpg)
+[![DSCN9108](https://burakpehlivan.org/tuid_images/DSCN9108.jpg)
 
-![DSCN9137](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9137.jpg)
+![DSCN9140](https://burakpehlivan.org/tuid_images/DSCN9140.jpg)
 
-[![DSCN9121](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9121.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9121.jpg)
+[![DSCN9114](https://burakpehlivan.org/tuid_images/DSCN9114.jpg)
 
-[![DSCN9125](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9125.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9125.jpg)
+![DSCN9137](https://burakpehlivan.org/tuid_images/DSCN9137.jpg)
 
-[![DSCN9139](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9139.jpg)](http://arsiv.tuid.org.ua/wp-content/uploads/2014/07/DSCN9139.jpg)
+[![DSCN9121](https://burakpehlivan.org/tuid_images/DSCN9121.jpg)
+
+[![DSCN9125](https://burakpehlivan.org/tuid_images/DSCN9125.jpg)
+
+[![DSCN9139](https://burakpehlivan.org/tuid_images/DSCN9139.jpg)

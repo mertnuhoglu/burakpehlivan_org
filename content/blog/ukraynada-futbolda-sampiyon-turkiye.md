@@ -6,7 +6,7 @@ tags: ["ACC", "alman", "italyan", "Spor", "TUİD", "TUİD (Türk Ukrayna İşada
 type: post
 ---
 
-![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/06/IMG_3181.jpg)
+![](https://burakpehlivan.org/tuid_images/IMG_3181.jpg)
 
 
 

@@ -6,7 +6,7 @@ tags: ["Dernek", "Hayır", "Odesa", "TUİD", "TUİD (Türk Ukrayna İşadamları
 type: post
 ---
 
-![haber](http://arsiv.tuid.org.ua/images/haber/solnushko.jpg)
+![haber](https://burakpehlivan.org/tuid_images/solnushko.jpg)
 
 
 
@@ -68,13 +68,13 @@ TUİD Odesa Temsilcisi ve Muhasip Üyesi Özgür Tonguç Çuhalı, destek ve ilg
 
 Tören sonrası görüşlerine başvurduğumuz yurt müdürü Olga Ponteleyevna “15 yıldan fazla bir zamandır Solnişko Kimsesizler Yurdu”nda yonetici olarak gorev yapiyorum. İlk kez boylesine buyuk bir yardim yapiliyor, bu kadar coşkulu bir insan grubunun bu yetimlere, ihtiyaç sahibi yavrulara bu şekilde sahip çıktığını görüyorum, şu an ağlamamak için kendimi zor tutuyorum, Türkler’e binlerce teşekkürler, ne kadar düzgün komşular olduklarını bizlere gösterdiler “ dedi.
 
-![haber](http://arsiv.tuid.org.ua/images/haber/solnushko12.jpg)
+![haber](https://burakpehlivan.org/tuid_images/solnushko12.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/solnushko15.jpg)
+![haber](https://burakpehlivan.org/tuid_images/solnushko15.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/solnushko16.jpg)
+![haber](https://burakpehlivan.org/tuid_images/solnushko16.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/solnushko17.jpg)
+![haber](https://burakpehlivan.org/tuid_images/solnushko17.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/solnushko18.jpg)
+![haber](https://burakpehlivan.org/tuid_images/solnushko18.jpg)
 

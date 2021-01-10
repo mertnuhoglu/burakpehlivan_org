@@ -6,7 +6,7 @@ tags: ["30 ağustos", "Kiev", "Mehmet Samsar", "TUİD", "TUİD (Türk Ukrayna İ
 type: post
 ---
 
-[![](http://arsiv.tuid.org.ua/wp-content/uploads/2012/08/kievde-30-agustos-coskuyla-kutlandi-5.jpg "kiev'de-30-agustos-coskuyla-kutlandi (5)")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/08/kievde-30-agustos-coskuyla-kutlandi-5.jpg)
+[![](https://burakpehlivan.org/tuid_images/kievde-30-agustos-coskuyla-kutlandi-5.jpg)
 
 Ukrayna’nın başkenti Kiev’de, 30 Ağustos Zafer Bayramı’nın 90. yıldönümü coşkuyla kutlandı.
 Ukrayna Devlet Konukevi’nde düzenlenen kutlama resepsiyonunda, yerli ve yabancı konuklar Türkiye Cumhuriyeti Kiev Büyükelçisi Mehmet Samsar ve Askeri Ateşe Cengiz Fitöz tarafından karşılandı.

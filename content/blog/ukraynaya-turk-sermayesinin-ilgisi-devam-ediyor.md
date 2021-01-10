@@ -24,40 +24,40 @@ Türk Boya Sanayicileri Heyeti ile Diyarbakır Tekstil Sanayi ve İşadamları D
 
 Kaynak: http://tuid.org.ua/ukraynaya-turk-sermayesinin-ilgisi-devam-ediyor
 
-![DSCN7417](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7417.jpg) ![DSCN7419](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7419.jpg) ![DSCN7423](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7423.jpg) ![DSCN7431](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7431.jpg) ![DSC_1357](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1357.jpg) ![DSC_1358](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1358.jpg) ![DSC_1361](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1361.jpg) ![DSC_1364](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1364.jpg) ![DSC_1365](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1365.jpg) ![DSC_1374](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1374.jpg) ![DSC_1391](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1391.jpg) ![DSC_1408](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1408.jpg) ![DSC_1413](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1413.jpg) ![DSC_1414](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1414.jpg) ![DSC_1416](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1416.jpg) ![DSC_1419](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1419.jpg) ![DSC_1430](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSC_1430.jpg) ![DSCN7402](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7402.jpg) ![DSCN7403](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7403.jpg) ![DSCN7406](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7406.jpg)  ![DSCN7410](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7410.jpg) ![DSCN7411](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7411.jpg) ![DSCN7412](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7412.jpg)  ![DSCN7414](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7414.jpg)  ![DSCN7416](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7416.jpg)
+![DSCN7417](https://burakpehlivan.org/tuid_images/DSCN7416.jpg)
 
-![DSCN7593](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7593.jpg)
+![DSCN7593](https://burakpehlivan.org/tuid_images/DSCN7593.jpg)
 
-![DSCN7594](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7594.jpg)
+![DSCN7594](https://burakpehlivan.org/tuid_images/DSCN7594.jpg)
 
-![DSCN7617](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7617.jpg)
+![DSCN7617](https://burakpehlivan.org/tuid_images/DSCN7617.jpg)
 
-![DSCN7556](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7556.jpg)
+![DSCN7556](https://burakpehlivan.org/tuid_images/DSCN7556.jpg)
 
-![DSCN7558](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7558.jpg)
+![DSCN7558](https://burakpehlivan.org/tuid_images/DSCN7558.jpg)
 
-![DSCN7560](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7560.jpg)
+![DSCN7560](https://burakpehlivan.org/tuid_images/DSCN7560.jpg)
 
-![DSCN7563](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7563.jpg)
+![DSCN7563](https://burakpehlivan.org/tuid_images/DSCN7563.jpg)
 
-![DSCN7565](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7565.jpg)
+![DSCN7565](https://burakpehlivan.org/tuid_images/DSCN7565.jpg)
 
-![DSCN7569](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7569.jpg)
+![DSCN7569](https://burakpehlivan.org/tuid_images/DSCN7569.jpg)
 
-![DSCN7571](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7571.jpg)
+![DSCN7571](https://burakpehlivan.org/tuid_images/DSCN7571.jpg)
 
-![DSCN7573](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7573.jpg)
+![DSCN7573](https://burakpehlivan.org/tuid_images/DSCN7573.jpg)
 
-![DSCN7574](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7574.jpg)
+![DSCN7574](https://burakpehlivan.org/tuid_images/DSCN7574.jpg)
 
-![DSCN7576](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7576.jpg)
+![DSCN7576](https://burakpehlivan.org/tuid_images/DSCN7576.jpg)
 
-![DSCN7577](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7577.jpg)
+![DSCN7577](https://burakpehlivan.org/tuid_images/DSCN7577.jpg)
 
-![DSCN7581](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7581.jpg)
+![DSCN7581](https://burakpehlivan.org/tuid_images/DSCN7581.jpg)
 
-![DSCN7584](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7584.jpg)
+![DSCN7584](https://burakpehlivan.org/tuid_images/DSCN7584.jpg)
 
-![DSCN7590](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7590.jpg)
+![DSCN7590](https://burakpehlivan.org/tuid_images/DSCN7590.jpg)
 
-![DSCN7592](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7592.jpg)
+![DSCN7592](https://burakpehlivan.org/tuid_images/DSCN7592.jpg)

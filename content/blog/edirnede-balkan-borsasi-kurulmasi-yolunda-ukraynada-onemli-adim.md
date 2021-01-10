@@ -6,7 +6,7 @@ tags: ["balkan borsası", "balkanlar", "edirne borsası", "ticaret anlasmasi", "
 type: post
 ---
 
-**![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler.jpg)**
+**![haber](https://burakpehlivan.org/tuid_images/edirneliler.jpg)**
 
 ** **Edirne'de Balkan Borsası kurulması yolunda Ukrayna'da önemli adım****
 
@@ -47,22 +47,22 @@ TUİD Yönetim Kurulu Başkan Vekili Burak Pehlivan'ın, heyet adına TUİD'in a
 
 [ http://www.zaman.com.tr](http://www.zaman.com.tr/haber.do?haberno=1244048&title=edirnede-balkan-borsasi-kurulmasi-yolunda-ukraynada-onemli-adim)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler1.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler1.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler2.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler2.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler3.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler3.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler4.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler4.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler5.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler5.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler6.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler6.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler7.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler7.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler9.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler9.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler10.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler10.jpg)
 
-![haber](http://arsiv.tuid.org.ua/images/haber/edirneliler11.jpg)
+![haber](https://burakpehlivan.org/tuid_images/edirneliler11.jpg)

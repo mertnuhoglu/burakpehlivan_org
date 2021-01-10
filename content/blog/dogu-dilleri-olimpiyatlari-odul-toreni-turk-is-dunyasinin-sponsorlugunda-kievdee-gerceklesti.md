@@ -18,40 +18,40 @@ Olimpiyatlarda Türkçe ikincisi Viktoriya Boradavçenko’ya, Ukrayna'nın en b
 
 Olimpiyatların ödül töreni, Koreli ve Çinli diplomatların, ilgili dillerde dereceye giren öğrencilere armağanlarını takdim etmeleri sonrasında, çekilen hatıra fotoğrafları ile sona ererken, verilen onlarca ödül arasında Türkçe dalında birincilik ödülü olan ve T.C. Kiev Kültür ve Tanııtım müşavirliğinin organize ettiği 1 haftalık Antalya tatilinin en çok alkış ve ilgiyi çekmesi dikkatlerden kaçmadı.
 
-![nhudn8bvvBk](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/nhudn8bvvBk.jpg)
+![nhudn8bvvBk](https://burakpehlivan.org/tuid_images/nhudn8bvvBk.jpg)
 
-![sTZpo2kymrk](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/sTZpo2kymrk.jpg)
+![sTZpo2kymrk](https://burakpehlivan.org/tuid_images/sTZpo2kymrk.jpg)
 
-![usKIWefpQaY](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/usKIWefpQaY.jpg)
+![usKIWefpQaY](https://burakpehlivan.org/tuid_images/usKIWefpQaY.jpg)
 
-![zKcwuq9iLro](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/zKcwuq9iLro.jpg)
+![zKcwuq9iLro](https://burakpehlivan.org/tuid_images/zKcwuq9iLro.jpg)
 
-![_1jRoWQeKkg](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/1jRoWQeKkg.jpg)
+![_1jRoWQeKkg](https://burakpehlivan.org/tuid_images/1jRoWQeKkg.jpg)
 
-![4FdN7opdjro](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/4FdN7opdjro.jpg)
+![4FdN7opdjro](https://burakpehlivan.org/tuid_images/4FdN7opdjro.jpg)
 
-![8iekueEK0Gg](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/8iekueEK0Gg.jpg)
+![8iekueEK0Gg](https://burakpehlivan.org/tuid_images/8iekueEK0Gg.jpg)
 
-![BWlapVA-gdo](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/BWlapVA-gdo.jpg)
+![BWlapVA-gdo](https://burakpehlivan.org/tuid_images/BWlapVA-gdo.jpg)
 
-![cO-93XCGeFg](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/cO-93XCGeFg.jpg)
+![cO-93XCGeFg](https://burakpehlivan.org/tuid_images/cO-93XCGeFg.jpg)
 
-![DSCN7637](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7637.jpg)
+![DSCN7637](https://burakpehlivan.org/tuid_images/DSCN7637.jpg)
 
-![DSCN7639](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7639.jpg)
+![DSCN7639](https://burakpehlivan.org/tuid_images/DSCN7639.jpg)
 
-![DSCN7648](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7648.jpg)
+![DSCN7648](https://burakpehlivan.org/tuid_images/DSCN7648.jpg)
 
-![DSCN7661](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7661.jpg)
+![DSCN7661](https://burakpehlivan.org/tuid_images/DSCN7661.jpg)
 
-![DSCN7666](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7666.jpg)
+![DSCN7666](https://burakpehlivan.org/tuid_images/DSCN7666.jpg)
 
-![DSCN7671](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7671.jpg)
+![DSCN7671](https://burakpehlivan.org/tuid_images/DSCN7671.jpg)
 
-![DSCN7677](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/DSCN7677.jpg)
+![DSCN7677](https://burakpehlivan.org/tuid_images/DSCN7677.jpg)
 
-![f6UOww9n8gY](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/f6UOww9n8gY.jpg)
+![f6UOww9n8gY](https://burakpehlivan.org/tuid_images/f6UOww9n8gY.jpg)
 
-![iYsQmO22h0I](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/iYsQmO22h0I.jpg)
+![iYsQmO22h0I](https://burakpehlivan.org/tuid_images/iYsQmO22h0I.jpg)
 
-![nEslfSWqoug](http://arsiv.tuid.org.ua/wp-content/uploads/2014/05/nEslfSWqoug.jpg)
+![nEslfSWqoug](https://burakpehlivan.org/tuid_images/nEslfSWqoug.jpg)

@@ -8,7 +8,7 @@ type: post
 
 
 
-![haber](http://arsiv.tuid.org.ua/images/haber/olga.jpg)
+![haber](https://burakpehlivan.org/tuid_images/olga.jpg)
 
 Bu yıl 8.’si düzenlenen YES(Yalta European Strategy) forumunun açılışı Ukrayna Cumhurbaşkanı Yanukoviç ve İsrail Devlet Başkanı Şimon Perez tarafından yapılmıştı. Foruma, eski İngiltere başbakanı Tony Blair’den, İsveç Dışişleri Bakanı Carld Bildt’e   geniş bir uluslar arası katılım sağlanmış,  Ukrayna ise Başbakan Azarov ve Başbakan yardımcısı Kolesnikov’un da dahil olduğu çok sayıda siyasetçi , diplomat ve gazeteci tarafından temsil edilmişti. Türkiye'den ise YES’e başta başmüzakereci Egemen Bağış ve AKPM Başkanı Mevlut Çavuşoğlu olmak üzere, çok sayıda siyasetçi, diplomat ve işadamı ilgi göstermişti.
 

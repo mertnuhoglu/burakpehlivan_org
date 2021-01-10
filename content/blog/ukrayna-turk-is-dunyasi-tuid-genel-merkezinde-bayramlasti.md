@@ -16,93 +16,93 @@ T.C. Kiev Büyükelçisi Yönet Can Tezel ise, TUİD’in yaptığı faaliyetler
 
 TUİD genel merkezindeki bayramlaşma, Kiev Mangal Restoranın ve Intercontinental Oteli’nin ikramları eşliğinde sona erdi.
 
-![DSCN0039](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN00391.jpg)
+![DSCN0039](https://burakpehlivan.org/tuid_images/DSCN00391.jpg)
 
-![DSCN0038](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0038.jpg)
+![DSCN0038](https://burakpehlivan.org/tuid_images/DSCN0038.jpg)
 
-![DSCN0037](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0037.jpg)
+![DSCN0037](https://burakpehlivan.org/tuid_images/DSCN0037.jpg)
 
-![DSCN0022](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0022.jpg)
+![DSCN0022](https://burakpehlivan.org/tuid_images/DSCN0022.jpg)
 
-![DSCN0019](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0019.jpg)
+![DSCN0019](https://burakpehlivan.org/tuid_images/DSCN0019.jpg)
 
-![DSCN0018](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN00181.jpg)
+![DSCN0018](https://burakpehlivan.org/tuid_images/DSCN00181.jpg)
 
-![DSCN0017](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN00171.jpg)
+![DSCN0017](https://burakpehlivan.org/tuid_images/DSCN00171.jpg)
 
-![DSCN0013](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0013.jpg)
+![DSCN0013](https://burakpehlivan.org/tuid_images/DSCN0013.jpg)
 
-![DSCN0008](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN00081.jpg)
+![DSCN0008](https://burakpehlivan.org/tuid_images/DSCN00081.jpg)
 
-![DSCN0006](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN00061.jpg)
+![DSCN0006](https://burakpehlivan.org/tuid_images/DSCN00061.jpg)
 
-![DSCN9999](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN9999.jpg)
+![DSCN9999](https://burakpehlivan.org/tuid_images/DSCN9999.jpg)
 
-![DSCN9990](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN9990.jpg)
-
- 
-
-![DSCN9986](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN9986.jpg)
+![DSCN9990](https://burakpehlivan.org/tuid_images/DSCN9990.jpg)
 
  
 
-![DSCN9982](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN9982.jpg)
-
-![DSCN9974](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN99741.jpg)
-
-![DSCN9970](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN9970.jpg)
-
-![DSCN9968](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN9968.jpg)
-
-![DSCN9962](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN99621.jpg)
-
-![DSCN9959](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN99591.jpg)
-
-![DSCN0213](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0213.jpg)
-
-![DSCN0187](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0187.jpg)
+![DSCN9986](https://burakpehlivan.org/tuid_images/DSCN9986.jpg)
 
  
 
-![DSCN0167](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0167.jpg)
+![DSCN9982](https://burakpehlivan.org/tuid_images/DSCN9982.jpg)
 
-![DSCN0159](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0159.jpg)
+![DSCN9974](https://burakpehlivan.org/tuid_images/DSCN99741.jpg)
 
-![DSCN0156](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0156.jpg)
+![DSCN9970](https://burakpehlivan.org/tuid_images/DSCN9970.jpg)
 
-![DSCN0133](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0133.jpg)
+![DSCN9968](https://burakpehlivan.org/tuid_images/DSCN9968.jpg)
+
+![DSCN9962](https://burakpehlivan.org/tuid_images/DSCN99621.jpg)
+
+![DSCN9959](https://burakpehlivan.org/tuid_images/DSCN99591.jpg)
+
+![DSCN0213](https://burakpehlivan.org/tuid_images/DSCN0213.jpg)
+
+![DSCN0187](https://burakpehlivan.org/tuid_images/DSCN0187.jpg)
 
  
 
-![DSCN0114](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0114.jpg)
+![DSCN0167](https://burakpehlivan.org/tuid_images/DSCN0167.jpg)
 
-![DSCN0110](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0110.jpg)
+![DSCN0159](https://burakpehlivan.org/tuid_images/DSCN0159.jpg)
 
-![DSCN0109](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0109.jpg)
+![DSCN0156](https://burakpehlivan.org/tuid_images/DSCN0156.jpg)
 
-![DSCN0104](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0104.jpg)
+![DSCN0133](https://burakpehlivan.org/tuid_images/DSCN0133.jpg)
 
-![DSCN0095](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0095.jpg)
+ 
 
-![DSCN0092](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0092.jpg)
+![DSCN0114](https://burakpehlivan.org/tuid_images/DSCN0114.jpg)
 
-![DSCN0091](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0091.jpg)
+![DSCN0110](https://burakpehlivan.org/tuid_images/DSCN0110.jpg)
 
-![DSCN0075](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0075.jpg)
+![DSCN0109](https://burakpehlivan.org/tuid_images/DSCN0109.jpg)
 
-![DSCN0073](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0073.jpg)
+![DSCN0104](https://burakpehlivan.org/tuid_images/DSCN0104.jpg)
 
-![DSCN0069](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0069.jpg)
+![DSCN0095](https://burakpehlivan.org/tuid_images/DSCN0095.jpg)
 
-![DSCN0063](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0063.jpg)
+![DSCN0092](https://burakpehlivan.org/tuid_images/DSCN0092.jpg)
 
-![DSCN0057](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0057.jpg)
+![DSCN0091](https://burakpehlivan.org/tuid_images/DSCN0091.jpg)
 
-![DSCN0052](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0052.jpg)
+![DSCN0075](https://burakpehlivan.org/tuid_images/DSCN0075.jpg)
 
-![DSCN0050](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0050.jpg)
+![DSCN0073](https://burakpehlivan.org/tuid_images/DSCN0073.jpg)
 
-![DSCN0170](http://arsiv.tuid.org.ua/wp-content/uploads/2015/07/DSCN0170.jpg)
+![DSCN0069](https://burakpehlivan.org/tuid_images/DSCN0069.jpg)
+
+![DSCN0063](https://burakpehlivan.org/tuid_images/DSCN0063.jpg)
+
+![DSCN0057](https://burakpehlivan.org/tuid_images/DSCN0057.jpg)
+
+![DSCN0052](https://burakpehlivan.org/tuid_images/DSCN0052.jpg)
+
+![DSCN0050](https://burakpehlivan.org/tuid_images/DSCN0050.jpg)
+
+![DSCN0170](https://burakpehlivan.org/tuid_images/DSCN0170.jpg)
 
  
 
