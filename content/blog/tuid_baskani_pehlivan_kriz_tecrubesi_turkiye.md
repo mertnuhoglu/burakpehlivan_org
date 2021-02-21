@@ -3,6 +3,8 @@ title: "TUİD Başkanı Pehlivan: Kriz tecrübesi bulunan Türkiye ve Ukrayna'n�
 date: 2020-05-25T16:44:23+03:00
 draft: false
 tags: ["Ukrayna"]
+thumbnailImagePosition: left
+thumbnailImage: /thumbs_b_c_cbb36c406249410f9b3cb4ceae2c1b20.jpg
 type: post
 ---
 
