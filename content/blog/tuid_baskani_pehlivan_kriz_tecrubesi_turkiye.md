@@ -8,6 +8,8 @@ type: post
 
 Türk Ukrayna İşadamları Derneği (TUİD) Başkanı Burak Pehlivan, AA muhabirine pandemi sonrasında Türkiye ve Ukrayna arasında oluşacak iş fırsatları hakkında bilgi verdi.
 
+![](/thumbs_b_c_cbb36c406249410f9b3cb4ceae2c1b20.jpg)
+
 Koronavirüs pandemisi nedeniyle dünya ekonomisinde kartların yeniden dağıtıldığı, büyük değişim ve dönüşümlerin gerçekleşeceği bir dönemin yaşanacağını anlatan Pehlivan, bu dönemin aynı zamanda bilinmezliklerle dolu olduğunu söyledi.
 
 "Yeni şartlara hızla uyum sağlayanın bugüne kadar hiç olmadığı kadar avantajlı çıkacağı yeni bir döneme giriyoruz." diyen Pehlivan, şunları kaydetti:
